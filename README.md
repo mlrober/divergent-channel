@@ -790,3 +790,152 @@ When frozen/blocked:
 	- Divergent channel treatment (Lung/Large Intestine)
 	- Breathwork
 	- Bring awareness to present moment
+
+### The Fundamental Principle
+- Five shen = Five aspects of ONE shen (person)
+- Each contains unique aspects, and each shapes the others for wholeness
+
+### Five-Phase Relationships
+- Controlling/Shaping Cycle:
+	- When balanced:
+		- harmonizing force
+	- When imbalanced: 
+		- overacting/destructive
+
+### Organs/Shen contain innate intelligence
+- Messages sent to related shen
+- Integral aspect of functioning
+- Five-phase cycles show patterns
+
+### The Relationship between 5 Shen
+### Heart Shen → Lung Po:
+- Message from Shen:
+	- "We are essentially spirit."
+- Guides Po:
+	- In expression of physical life
+	- Po close to physical body/aspect
+	- When imbalanced: susceptible to polarization → selfishness
+	- Unhealthy pursuit of own needs/desires/pleasures
+	- Ignoring others' needs
+- Balance:
+	- Shen expresses yuan shen (original nature) to po
+	- Po guided by Heart shen
+	- Smooth expression of po in life
+	- Natural, spontaneous expression of spirit
+- Result when balanced:
+	- Living in Tao
+	- Living in spirit
+	- Christ consciousness / Krishna consciousness / Buddha nature
+
+### Lung Po → Liver Hun:
+- Message from Po:
+	- "Importance of living in this world, enjoying it, full expression in here and now."
+- To Hun (ethereal spirit/collective):
+- Imbalanced Hun:
+	- Denial of physical body
+	- Spiritual pursuit denying physicality
+	- Deep polarization
+	- Too involved in society/helping others (detriment to own health)
+	- Belief it's greater value to help others
+	- Rejection of physical needs/desires
+- Balance needed:
+	- Self AND others
+	- Individual AND society
+	- Physical AND spiritual
+	- Po-hun harmony
+
+### Liver Hun → Spleen Yi:
+- Message from Hun:
+	- "We are part of the whole, not separate from whole of life."
+- To Yi (intellect/concepts):
+- Imbalanced Yi:
+	- Too attached to thoughts/concepts
+	- Attention turns from real life
+	- Creates schism (body knows one reality: present)
+	- Obsessive/repetitive actions
+	- Rooted in extreme/distorted understanding
+- Hun helps balance Yi:
+	- Receive and process life clearly
+	- Spontaneous way (not conditioned/repetitive)
+	- Yi is one aspect, not primary aspect
+
+### Spleen Yi → Kidney Zhi:
+- Message from Yi:
+	- Provides direction/focus
+- Applies intention on achieving/accomplishing
+- To Zhi (unlimited nature/chaos/primordial):
+- Before Yi influence:
+	- Zhi = anything is possible
+	- Before thinking
+	- Before dualistic categorization
+	- Chaos (Taoist philosophy)
+- Imbalanced Yi overacts:
+	- Forces zhi into specific shape
+	- Prevents free-flowing nature
+	- Creates conditioning in responses
+	- Rigidity
+- Balanced Yi shapes Zhi:
+	- Accomplish goals/objectives
+	- Willpower to live desired life
+	- Will to seek true nature and live from it
+	- Zhi needs some direction (or spreads too much)
+### The Relationship Between Yi and Zhi (Channel Examples)
+- Chong channel:
+	- Begins at ST-30 (chong qi)
+	- Stomach = earth
+	- Illustrates earth shaping form of jing as it unfolds
+- Spleen 4 (gongsun):
+	- Opening point of chong channel
+	- Earth shaping water
+	- Post-natal shaping pre-natal
+- Balanced Yi provides:
+	- Favorable focus and intention
+	- Allows zhi to unfold healthily
+	- Openness to receive/experience life
+	- Flexibility and adaptability for zhi
+	- Natural unfolding
+	- Fulfillment of destiny
+
+### Kidney Zhi → Heart Shen:
+- Classic Chinese model:
+	- Yin-Yang
+	- Water-Fire
+	- Shao Yin
+	- Jing-Shen
+- Zhi's capacity:
+	- Become anything
+	- Clear direction within possibilities
+	- Jing seeking shen
+	- Zhi seeking Heart shen
+- Kidney channel pathway:
+	- External pathway flows past Heart area
+	- Contains front shu points (5 points)
+	- Profound influence on five shen (Su Wen Chapter 58)
+- Heart Shen as Goal
+	- Heart shen contains:
+		- True nature
+		- Original spirit (yuan shen)
+	- Realization of this:
+		- Primary goal/purpose of life (in some traditions)
+		- Provides opportunity to live from this awareness
+		- Unity of life experienced directly
+- Jing seeking shen:
+	- Our quest in life
+	- Inner energetic system reflecting quest
+	- Kidney-Heart trajectory connection
+- Divergent channels:
+	- Clear away "rough" preventing realization
+	- Guide awareness to spirit
+	- Support spiritual realization
+
+### Summary of Shen Nature and Qualities
+
+|----------------------------------------------------------------------------------------------|
+| Shen | Element | OrganQuality | Virtue | Imbalance |
+| Zhi  | Water | Kidney/Bladder | Lineage, genetics, willpower, vision, dreams, destiny, unlimited possibilities | Gentleness | Fear |
+| Hun | Wood | Liver/Gallbladder | Collective, intelligence, growth, direction, ethereal, planning, decision-making | Kindness | Anger, irritability, frustration |
+| Shen | Fire | Heart/Small Intestine | Spirit, consciousness, quest, guidance, intuition, wisdom, yuan shen | Joy, Love | Hastiness, impatience, hatred, arrogance, cruelty |
+| Yi | Earth | Spleen/Stomach | Concepts, thoughts, intellect, grounding, digesting experiences, organizing, holding, mindfulness | Openness | Worry, pensiveness, obsessiveness, jealousy |
+| Po | Metal | Lung/Large Intestine | Physical body, desires, sensitivity, selfishness, isolation | Courage, Righteousness | Sadness, depression, loneliness, inability to forgive |
+|----------------------------------------------------------------------------------------------|
+
