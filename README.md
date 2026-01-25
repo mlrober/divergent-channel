@@ -939,3 +939,50 @@ When frozen/blocked:
 | Po | Metal | Lung/Large Intestine | Physical body, desires, sensitivity, selfishness, isolation | Courage, Righteousness | Sadness, depression, loneliness, inability to forgive |
 |----------------------------------------------------------------------------------------------|
 
+
+
+
+
+### CLINICAL APPLICATIONS OF FIVE SHEN
+#### Diagnosis
+- When patient presents with emotions
+1. Match emotion to organ/shen:
+- Anger → Liver/hun
+- Fear → Kidney/zhi
+- Worry → Spleen/yi
+- Sadness → Lung/po
+- Impatience → Heart/shen
+2. Assess which shen is imbalanced
+3. Determine if organ condition affecting shen OR shen affecting organ
+
+#### Treatment Strategy
+- Foundation:
+	- Acupuncture channels extend from organs
+	- Channel conditions influence organs
+	- Organ conditions influence shen
+- Connecting channels:
+	- Treat blood (emotions stored in blood)
+	- Release emotional energy
+- Divergent channels:
+	- Support connecting channels
+	- Support primary channels
+	- Assist in releasing emotions from deep levels
+- The Process:
+	- Identify imbalanced shen/emotion
+	- Select appropriate channel system(s)
+	- Treat to release or transform
+	- Support with cultivation (nei dan, Qi Gong)
+- Diamond in the Rough Application
+- The Rough:
+	- Imbalanced emotions
+	- Conditioning
+	- Stress
+	- Imprints
+- The Diamond:
+	- Yuan shen (original spirit)
+	- True nature
+- Treatment Goal:
+	- Clear the rough
+	- Reveal the diamond
+	- Acupuncture and nei dan assist this process
+
