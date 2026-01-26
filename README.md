@@ -985,4 +985,448 @@ When frozen/blocked:
 	- Clear the rough
 	- Reveal the diamond
 	- Acupuncture and nei dan assist this process
+- Progression:
+	- Skin level (cutaneous)
+	- Micro luo channels
+	- Regular luo (connecting) channels
+	- Main (primary) channels
+	- Internal organs
 
+- The Layers:
+	- Hair level
+	- Skin level
+	- Muscle level
+	- Channel level
+	- Tendon level
+	- Bone and marrow level
+
+- Critical Principle: Treat at the correct depth! Needling too deeply can:
+	- Miss the pathogen
+	- Push pathogen deeper
+	- Damage deeper layers
+
+### THE THREE-LAYER MODEL
+- Organizing the Channel System
+	- Superficial (Wei) Layer:
+		- Cutaneous regions
+		- Muscle (sinew/tendon) channels
+		- Luo (connecting) channels
+		- Defensive qi (wei qi)
+	- Middle (Ying) Layer:
+		- Primary (major) channels
+		- Nutritive qi (ying qi)
+		- Internal organs (connection through primary channels)
+	- Deep (Yuan) Layer:
+		- Eight extraordinary channels
+		- Bone and marrow
+		- Jing (essence)
+		- Source qi (yuan qi)
+
+- Divergent Channels' Unique Position
+- Divergent channels influence ALL THREE layers:
+	- Wei (superficial): Connect to muscle and luo channels
+	- Ying (middle): Arise from primary channels, connect to organs
+	- Yuan (deep): Connect to eight extraordinary channels through bones/jing
+
+#### This is why they can treat "an extraordinary number of diseases."
+
+### THE NINE NEEDLES AND THEIR FUNCTIONS
+#### Core Principle:
+- Each needle was designed for:
+	- Specific channel system
+	- Specific body layer
+	- Specific type of pathology
+	- Specific needling technique
+
+##### Modern practice: Reduced to mainly one needle (roundsharp/filiform)
+##### Classical practice: Nine different tools for comprehensive treatment
+
+### NEEDLE 1: ARROWHEAD / CHISEL / SEVEN STAR
+- Chinese: Chanzhen
+- Length: 1.6 cun
+- Design
+	- Big head with sharp tip
+	- Arrow-shaped or chisel-like
+- Layer & Channel
+	- Superficial layers
+	- Muscle (sinew) channels
+- Function
+	- Arouses Yang Qi
+	- Stimulates wei qi
+	- Releases exterior pathogenic factors
+- Technique
+	- "Chiseling forward"
+	- Moving one way continually deeper
+	- Pushed along body surface
+- Indications
+	- Cold binding the channels
+	- Cold in joints
+	- Lung pathology (releasing pathogens affecting Lungs)
+- Modern Equivalent
+	- Seven-star hammer (plum blossom hammer)
+	- Tapping technique
+### NEEDLE 2: ROUND
+- Chinese: Yuanzhen
+- Length: 1.6 cun
+- Design
+	- Round body
+	- Head like an egg (spoon-shaped)
+	- Dull end
+- Layer & Channel
+	- Muscle (sinew) channels
+	- Between muscles
+- Function
+	- Influences stasis of sinews
+	- Separates muscles
+	- Creates space to "scoop out" pathogens
+- Technique
+	- Circular movements
+	- Hooks needle to separate muscles
+	- Patient positioning to allow muscle separation
+- Indications
+	- Wind in sinew channels
+	- Muscle tension/spasm
+	- Can relax muscles
+- Complementary Modality
+	- Follow with gua sha
+	- Brings wind/pathogens to surface for release
+### NEEDLE 3: PRESSURE / SPOON
+- Chinese: Tizhen
+- Length: 3.5 cun
+- Design
+	- Sharp tip like grain of millet
+	- Spoon-like
+	- Dull at end
+- Layer & Channel
+	- Superficial layer
+	- Wei qi level
+- Function
+	- Scraping and rubbing (like gua sha)
+	- Arouses qi
+	- Can scrape head of needle
+- Technique
+	- Shaking needle method
+	- Emphasis on wrist movement
+	- Friction (pushes qi to extremities)
+- Modern Equivalent
+- Gua sha tool
+- Tui na friction techniques
+### NEEDLE 4: SHARP / LANCE / THREE-EDGED
+- Chinese: Fengzhen
+- Length: 1.6 cun
+- Design
+	- Three cutting edges
+	- Sharp triangular point
+- Layer & Channel
+	- Connecting (luo) channels
+	- Blood channels
+- Function
+	- Bloodletting
+	- Drains blood from five zang organs
+	- Releases toxins
+	- Treats chronic conditions
+- Technique
+	- Quick insertion and withdrawal
+	- Allow bleeding
+- Indications
+	- Chronic bi syndrome
+	- Blood stasis
+	- Luo point treatments
+- Contraindication
+	- Not in winter!
+	- Winter is for storage, not releasing
+	- Use fewer points in winter (body hibernating/storing to rejuvenate)
+- Modern Application
+	- Lancet
+	- Three-edged needle
+	- Bloodletting at luo points
+### NEEDLE 5: SWORD
+- Chinese: Pizhen
+- Length: 4 cun
+- Design
+	- Sharp tip like a sword
+	- Longer than many needles
+- Layer & Channel
+	- Ying (blood) level
+	- Middle layer
+- Function
+	- Drains pustules, abscesses, boils, swellings
+	- Treats febrile conditions
+- Technique
+	- Cutting method
+	- Moving backward and forward
+	- Stimulating by movement
+- Indications
+	- Skin eruptions with pus
+	- Heat conditions
+	- Swellings
+### NEEDLE 6: ROUNDSHARP / SHARP (FILIFORM)
+- Chinese: Yuanlizhen
+- Length: 1.6 cun
+- Design
+	- Sharp tip like hair
+	- Body slightly larger
+	- This is the common filiform needle used today
+- Layer & Channel
+	- Primary channels
+	- Ying (middle) layer
+	- Internal organs
+- Function
+	- "Can grasp the qi" (capture body's qi)
+	- Most versatile needle
+- Technique
+	- Standard insertion and manipulation
+	- Reinforcing and reducing techniques
+- Indications
+	- Primary channel conditions
+	- Internal organ imbalances
+	- Acute, sudden bi obstruction
+	- Modern Practice
+	- This is THE needle most commonly used
+	- 90%+ of modern acupuncture uses only this needle
+### NEEDLE 7: FINE
+- Chinese: Haozhen
+- Length: 3.6 cun (longest for superficial work)
+- Design
+	- Tip like mosquito's beak
+	- Very thin and long
+- Layer & Channel
+	- Cutaneous (skin) regions
+	- Superficial layer
+- Function
+	- Shallow needling
+	- Threading points together
+- Technique
+	- Pinch skin to provide space
+	- Pinch as you slide along skin
+	- Thread from point to point
+	- Hold pinch while sliding
+- Indications
+	- Cutaneous conditions
+	- Dermatological issues
+	- Superficial channel work
+- Modern Application
+	- Superficial needling
+	- Threading technique
+	- Intradermal needles
+### NEEDLE 8: LONG
+- Chinese: Changzhen
+- Length: 7 cun (longest needle)
+- Design
+	- Sharp tip
+	- Thin body
+	- Very long
+- Layer & Channel
+	- Deep level
+	- Yang Qi at deep level
+	- Divergent channels
+	- Tai Yin channels
+- Function
+	- Treats deep-level conditions
+	- Accesses center/deep regions
+	- Warms center of body
+- Technique
+	- Deep insertion
+	- Can reach abdomen center
+- Indications
+	- Cold and wind-cold (deep)
+	- Paralysis
+	- Numbness and pain
+	- Deep joint conditions
+	- Bones (cold trapped)
+	- Abdominal conditions
+- Modern Application
+	- Long needles for deep insertion
+	- Abdominal needling
+	- Deep joint treatments
+### NEEDLE 9: LARGE / BIG
+- Chinese: Dazhen
+- Length: 4 cun
+- Design
+	- Tip like a stick
+	- Slightly round
+	- Larger diameter
+- Layer & Channel
+	- Eight extraordinary channels
+	- Divergent channels
+- 	Deep (yuan) layer
+- Function
+	- Treats deepest levels
+	- Opens gates of body (small articulations)
+	- Long enough to enter yuan layer
+- Technique
+	- Deep insertion
+	- Can access bone level
+- Indications
+	- Joints
+	- Swellings
+	- Edema
+	- Damp
+- 	Wind-damp-cold
+- Modern Application
+	- Thicker-gauge needles for deep work
+	- Joint mobilization with needles
+
+### SUMMARY TABLES
+#### Table 8.1: Nine Needles Summary
+| Name | Chinese | Length | Key Feature |
+| 1 | Arrowhead/Chisel/Seven Star | Chanzhen | 1.6 cun | Big head, sharp tip |
+| 2 | Round | Yuanzhen | 1.6 cun | Round body, egg-like head | 
+| 3 | Pressure/Spoon | Tizhen | 3.5 cun | Sharp tip like millet grain |
+| 4 | Sharp/Lance/Three-edged | Fengzhen | 1.6 cun | Three cutting edges | 
+| 5 | Sword | Pizhen | 4 cun | Sharp tip like sword | 
+| 6 | Round sharp/Sharp | Yuanlizhen | 1.6 cun | Hair-like tip, slightly larger body | 
+| 7 | Fine | Haozhen | 3.6 cun | Mosquito beak tip | 
+| 8 | Long | Changzhen | 7 cun | Sharp tip, thin body, very long | 
+| 9 | Large/Big | Dazhen | 4 cun | Stick-like tip, slightly round |
+|-----------------------------------------------------------------|
+
+#### Table 8.2: Needles and Channels of Acupuncture
+| Channel System | Vital Substances | Body Area | Needle(s) |
+| Sinew (Muscle) | Wei qiSuperficial anatomy | 1-Arrowhead/Chisel, 2-Round, 3-Pressure/Spoon |
+| Luo (Connecting) | Ying/Blood | Emotions | 3-Pressure/Spoon, 4-Lance/Sharp, 6-Roundsharp |
+| Primary (Major) | Wei qi, Ying qi | Internal organs | 5-Sword, 6-Roundsharp/Sharp | 
+| Divergent (Separate) | Wei qi, Yuan qi | Surface to deep | 8-Long, 9-Large/Big | 
+| Eight Extraordinary | Jing, Yuan qi | Deepest levels, Jing | 8-Long, 9-Large/Big |
+|----------------------------------------------------------------------------------|
+#### Table 8.3: Needles, Channels, and Conditions
+|-------------------------------------------------------------------------|
+| Needle | Primary Function | 
+| 1-Arrowhead | Sinew channels, cutaneous conditions, releases from Lungs |
+| 2-Round | Wind in sinew channels, muscle relaxation | 
+| 3-Pressure | Arouses qi, superficial stimulation | 
+| 4-Sharp | Luo channels, bloodletting, chronic conditions | 
+| 5-Sword | Blood level, abscesses, boils, swellings, febrile conditions | 
+| 6-Roundsharp | Primary channels, organs, acute bi syndrome | 
+| 7-Fine | Cutaneous regions, dermatological conditions | 
+| 8-Long | Divergent channels, deep areas (joints/bones), abdomen | 
+| 9-LargeEight extraordinary and divergent channels, joints, swellings |
+|----------------------------------------------------------------------|
+
+### MODERN CLINICAL APPLICATION
+#### The Reality of Modern Practice
+- Traditional: 9 different needles with specific functions
+- Modern: Primarily use #6 (roundsharp/filiform) for everything
+- Problem:
+	- One tool cannot optimally treat all layers
+	- Missing specificity of classical approach
+- Solution:
+	- Use needling techniques to mimic effects of different needles
+	- Apply appropriate manipulation for each layer/condition
+
+#### NEEDLING TECHNIQUE AS SUBSTITUTE
+- Key Insight:
+	- Even with one needle type, you can create different effects through:
+		1. Insertion Depth
+			- Superficial → wei layer
+			- Middle → ying layer
+			- Deep → yuan layer
+		2. Manipulation Method
+			- Quick/slow insertion
+			- Rotation
+			- Lifting/thrusting
+			- Scraping
+			- Shaking
+			- Retention time
+		3. Angle of Insertion
+			- Perpendicular (deep organs)
+			- Oblique (middle layer)
+			- Horizontal (superficial/threading)
+		4. Number of Needles
+			- Single point (precise)
+			- Multiple (broad area)
+			- Patterns (surround or thread)
+		5. Stimulation Intensity
+			- Light (tonify)
+			- Heavy (reduce)
+			- Medium (regulate)
+### DIVERGENT CHANNELS AND THE NINE NEEDLES
+- Which Needles for Divergent Channels?
+	- From the tables:
+	- #8 Long needle - deep divergent channel work
+	- #9 Large needle - divergent and extraordinary channels
+- Why These Needles?
+	- Divergent channels:
+		- Flow from superficial (wei) to deep (yuan)
+		- Need needle long enough to access deep levels
+		- Need to influence bones/joints (where they begin/end)
+		- Treat both surface and depth simultaneously
+#### Modern Application Without Long/Large Needles:
+- Instead, use:
+	- Multiple points along pathway - stimulates entire channel
+	- Appropriate depth at each point - matches local layer
+	- Strong manipulation - creates deep effect even with shorter needle
+	- Reinforce/reduce techniques - directs qi movement
+	- Combined modalities - moxibustion, gua sha, cupping
+#### INTEGRATION WITH DIVERGENT CHANNEL TREATMENT
+- Treatment Strategy Using Nine Needle Concepts
+	- Example: Back Pain from Wind-Damp-Cold (Chapter 10 Case Study)
+		- Condition Location:
+		- Muscle channels (superficial)
+		- Divergent channels (middle)
+		- Bones/joints (deep)
+	- Classical Approach (if had all 9 needles):
+		- Needle #2 (Round) - separate muscles, release wind
+		- Needle #8 (Long) - deep divergent channel/bone level
+		- Needle #6 (Roundsharp) - primary channel support
+- Modern Approach (with filiform only):
+	- Superficial needling with manipulation - muscle channels
+	- Medium depth - divergent channel pathway points
+	- Deep insertion at joint areas - bone level
+	- Add moxibustion - warm and expel cold
+	- Add gua sha - release wind to exterior
+
+### THE FRAMEWORK FOR PATHOLOGY
+#### Nine Needles Provide Diagnostic Framework
+- When patient presents, ask:
+	- Which layer is affected?
+		- Superficial → skin, muscles
+		- Middle → primary channels, organs
+		- Deep → bones, jing, constitution
+- Which channel system?
+	- Cutaneous → needle #7
+	- Muscle → needles #1, #2
+	- Luo → needle #4
+	- Primary → needle #6
+	- Dive- rgent → needles #8, #9
+	- Extraordinary → needles #8, #9
+- What type of pathology?
+	- Exterior wind → needles #1, #2
+	- Blood stasis → needle #4
+	- Heat/abscess → needle #5
+	- Deep cold → needle #8
+	- Joint issues → needle #9
+- What technique needed?
+	- Arousing → needle #3
+	- Releasing → needle #4
+	- Warming → needle #8
+	- Opening → needle #9
+- This framework guides:
+	- Diagnosis
+	- Channel selection
+	- Point selection
+	- Needling technique
+- Treatment strategy
+#### PRACTICAL CLINICAL GUIDANCE
+- When Treating Divergent Channels:
+	1. Select Multiple Points
+	- Confluent points (upper and lower)
+	- Pathway points (5-8 points)
+	- Root/end points (extremities)
+	2. Vary Depth According to Location
+	- Superficial at muscle areas
+	- Medium at organ areas
+	- Deep at bone/joint areas
+	3. Apply Clear Technique
+	- Reinforce: slow insertion, quick withdrawal, cover hole
+	- Reduce: quick insertion, slow withdrawal, leave hole open
+	- Guide direction with manipulation
+	4. Support with Modalities
+	- Moxibustion (warm, tonify)
+	- Gua sha (release exterior)
+	- Cupping (draw out)
+	- Plum blossom (create outlet)
+	5. Treat Entire Channel
+	- Don't just needle one or two points
+	- Stimulate whole pathway
+	- Create comprehensive effect
