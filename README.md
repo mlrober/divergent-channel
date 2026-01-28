@@ -791,6 +791,95 @@ When frozen/blocked:
 	- Breathwork
 	- Bring awareness to present moment
 
+## 5. THE YI (意 - Spleen Intellect)
+#### Location & Function
+- Spleen houses the yi:
+	- Intellect
+	- Thoughts, concepts, ideas
+	- Logic and reasoning
+	- Mental processing
+#### The Transformation Function
+- Earth element = Spleen/Stomach:
+	- Grounding
+	- Organizing
+	- Digestion
+
+#### Two Types of Digestion:
+1. Physical Transformation:
+- Food/drink enters mouth (Spleen/Stomach)
+- Processed and transformed
+- Becomes nutritive substances
+- Quality determined by organ condition
+2. Psycho-Emotional Transformation:
+- Life experiences enter yi
+- Yi processes experiences
+- Organizes, categorizes, filters
+- Makes sense of life
+- Quality determined by yi condition
+- "Yi processes our life experiences."
+#### The Holding Function
+- Spleen holds blood in vessels.
+	- Yi holds emotions/thoughts in blood.
+- How:
+	- Feelings arise (spontaneous, Yang, superficial wei energy)
+	- Natural cycle: appear and leave (like sun/moon waxing/waning)
+	- Imbalanced yi tries to hold feelings artificially
+	- Continual thinking keeps experiences alive
+	- Feelings transform to emotions (stored in blood/Yin)
+	- Becomes conditioning
+	- Eventually becomes constitution
+	- Prevents spontaneous living
+- What we hold is NOT the real experience—it's a thought/memory.
+#### The Influence on Other Shen
+- Yi processes life experiences:
+	- Influences how we perceive
+	- Affects hun, po, zhi, and shen
+	- Our thinking/opinions about people and life
+- If yi imbalanced:
+	- All five shen affected
+	- Rigid and narrow responses
+	- Conditioned reactions (based on past)
+	- Past understanding rooted in fear, anger, misunderstanding, prejudice
+- Yi susceptible to:
+	- Fixed patterns
+	- Rigid reactions
+	- Repetitive responses
+	- Living in past
+#### Grounding & Decision-Making
+- Yi includes Stomach/Spleen qualities:
+	- Being grounded in choices/actions
+	- Comfortable with decisions
+	- Creating stable attitudes
+- When stagnated:
+	- Prevents new viewpoints
+	- Can't let go of past
+	- Can't experience spontaneously
+	- Dampness and phlegm manifest
+- Damp/Phlegm:
+	- Physical manifestation of rigid concepts/thoughts
+	- Blockages creating rigidity
+	- Slowing down life force
+	- Stagnating awareness
+#### Physical Manifestations
+- Spleen opens to the mouth:
+	- Yi imbalances manifest in eating disorders
+	- Mouth/eating expression of Spleen/Stomach/yi imbalance
+#### Mindfulness & Attention
+- Yi includes mindfulness:
+	- What we place attention on
+	- What we retain in mind
+	- Where focus goes
+- Overwhelm in childhood:
+	- Yi goes into survival mode
+	- Creates behavioral patterns to survive
+	- Patterns become constitution
+	- Reactive ways of responding
+- These imprints need understanding:
+	- Release from their influence
+	- Allow openness to spontaneity
+	- Live in present (not what it "should be")
+	- Live from shen
+
 ### The Fundamental Principle
 - Five shen = Five aspects of ONE shen (person)
 - Each contains unique aspects, and each shapes the others for wholeness
@@ -1430,3 +1519,121 @@ When frozen/blocked:
 	- Don't just needle one or two points
 	- Stimulate whole pathway
 	- Create comprehensive effect
+
+### 14 Foundation Principles
+These principles determine when divergent channels are appropriate:
+1. Three layers of the body
+2. From beginning to end
+3. The major channels
+4. Yin-Yang paired channels and transporting points
+5. Entering and exiting
+6. Roots and ends
+7. Fifty cycles
+8. Anatomical structures and divergent channels
+9. Distal needling
+10. Emotions and divergent channels
+11. Rivers and channels
+12. The muscle channels
+13. Measurements in reference to the bones
+14. Needling technique methods
+
+#### PRINCIPLE 1: THREE LAYERS OF THE BODY
+- The Three Layers
+	- Wei Layer (Superficial/Defensive):
+		- Cutaneous regions
+		- Muscle (sinew) channels
+		- Connecting (luo) channels
+		- Wei qi (defensive qi)
+		- Function: Protection from exterior pathogens
+	- Ying Layer (Middle/Nutritive):
+		- Primary (major) channels
+		- Internal organs
+		- Ying qi (nutritive qi)
+		- Function: Nourishment and organ function
+	- Yuan Layer (Deep/Source):
+		- Eight extraordinary channels
+		- Bone and marrow
+		- Jing (essence)
+		- Yuan qi (source qi)
+		- Function: Constitutional foundation
+- Divergent Channels' Unique Capacity
+	- They influence ALL THREE layers:
+| Layer | Divergent Channel Connection | Treatment Capacity |
+| Wei | Connect to muscle and luo channel | sCan release exterior pathogens |
+| Ying | Arise from primary channels, connect to organs | Can treat organs and channels | 
+| Yuan | Connect to bones, jing, extraordinary channels | Can transform constitution |
+
+- Clinical Significance:
+	- This is what makes divergent channels unique and powerful:
+		- Only channel system affecting all three layers simultaneously
+		- Can move substances/pathogens between layers
+		- Can support treatment at any depth
+- Targeting the Specific Layer
+	- Diagnosis requires determining:
+		- Where is the condition located? (which layer)
+		- What vital substances are affected?
+		- What channel system is involved?
+- Treatment Strategy:
+	- Superficial conditions (wei layer):
+		- Shallow needling
+		- Release to exterior
+		- Support with gua sha, cupping
+	- Middle conditions (ying layer):
+		- Medium depth needling
+		- Regulate organs and channels
+		- Support with herbs, diet
+	- Deep conditions (yuan layer):
+		- Deep needling
+		- Transform constitution
+		- Long-term treatment with cultivation
+- Divergent channels can:
+	- Guide from deep to superficial (release)
+	- Guide from superficial to deep (reinforce)
+	- Clear all three layers simultaneously
+
+#### PRINCIPLE 2: FROM BEGINNING TO END
+- Two important acupuncture theories:
+1. The Three Depths of Acupuncture
+	- first depth is a shallow insertion (wei level)
+	- second depth is a middle insertion (ying level)
+	- third depth is deep insertion (yuan level)
+
+- Clinical Application
+| Layer | Depth | Influences | 
+| Wei | Shallow | Sinew, luo, divergent channels (superficial aspect) |
+| Ying | Middle | Primary channels, organs |
+| Yuan | Deep | Extraordinary, divergent channels (deep aspect), jing |
+
+#### Key: Must needle at proper depth to influence intended layer!
+
+- 2. Contra-Lateral Needling Principle
+- If the condition is located at the upper body, treat the lower body.
+- If the condition is at the lower body, treat the upper body.
+- If the condition is at the head, treat the foot.
+- If the condition is at the loins, treat the crease of the knee.
+
+- Two Principles Behind This:
+1. Opposite Side Treatment:
+	- One side of body can treat opposite side
+	- Left-right correspondence
+2. Following Pathogen Movement:
+	- Condition can begin in one location
+	- Move to another location
+	- Treating origin more effective than treating current location
+- Clinical Application with Divergent Channels
+	- Strategy:
+		- Diagnose origin of condition
+		- Determine if pathogen has moved
+		- Use divergent channels at origin point
+		- Create contra-lateral treatment
+- Example:
+	- Shoulder pain on right
+	- Originated in right hip (patient history)
+	- Treat hip area with divergent channels
+	- Include left hip (contra-lateral)
+	- Support with right shoulder local points
+- This provides:
+	- Treatment at root cause
+	- Bilateral balance
+	- More effective pathogen release
+
