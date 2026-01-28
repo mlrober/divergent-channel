@@ -1637,3 +1637,180 @@ These principles determine when divergent channels are appropriate:
 	- Bilateral balance
 	- More effective pathogen release
 
+### PRINCIPLE 3: THE MAJOR (PRIMARY) CHANNELS)
+- Pathways (not acupuncture point lists)
+- Excess and deficiency conditions
+- Includes connecting (luo) channels
+- Key Insight: Pathogen Transfer
+	- Channel system is interwoven:
+		- Pathogenic factors can move within three layers
+		- Can transfer between channel systems
+		- Primary channels in middle position
+		- Can influence deeper and superficial levels
+- How Divergent Channels Support Primary Channels
+- Primary channels connect to:
+	- Internal organs
+	- Middle (ying) layer
+- Divergent channels also connect to:
+	- Same organs
+	- But ALSO superficial and deep layers
+- Therefore:
+- When treating primary channel:
+	- Divergent channels can support
+	- Act as bridge to other layers
+	- Enhance treatment effectiveness
+- When treating organs:
+	- Primary channels provide direct access
+	- Divergent channels mobilize additional resources
+	- Create comprehensive healing response
+- Integration Strategy
+- For Primary Channel Imbalances:
+	- Option 1 - Primary Channel Only:
+		- Select primary channel points
+		- Standard treatment
+	- Option 2 - Primary + Divergent:
+		- Begin with divergent channel treatment
+		- Mobilizes body's resources
+		- Then treat primary channel
+		- Creates synergy
+- Example (Stomach Excess):
+- Primary only:
+	- Reduce ST-36, ST-44, ST-45
+- Primary + Divergent:
+	- Treat ST/SP divergent channels (reduce)
+	- Then reduce ST-36, ST-44, ST-45
+	- Creates stronger downward/outward movement
+
+### PRINCIPLE 4: YIN-YANG PAIRED CHANNELS AND TRANSPORTING POINTS
+- Transporting points (well, spring, stream, river, sea)
+- Yin-Yang coupled pairs
+
+- The Transporting Points
+- Five categories per channel:
+| Point Type | Element | Flow Quality | Function |
+| Well (井 Jing) | Wood/Metal | Where qi springs forth | Beginning | 
+| Spring (滎 Ying) | Fire | Where qi gushes out | Gliding | 
+| Stream (輸 Shu) | EarthW | here qi pours | Transporting | 
+| River (經 Jing) | Metal/Wood | Where qi flows profusely | Moving | 
+| Sea (合 He) | Water | Where qi enters deeply | Converging |
+
+- Important Note:
+	- In Ling Shu, these are NOT five-phase points yet!
+		- That came later in Nan Ching
+		- Example: LU-9 is stream and source point (not "earth point")
+- Ling Shu Use:
+	- Transporting points treat ANY channel/organ condition
+	- Most powerful point category
+	- Can supplement divergent channel treatments
+- Yin-Yang Paired Channels
+- The Pairs:
+	- Lung - Large Intestine (metal)
+	- Stomach - Spleen (earth)
+	- Heart - Small Intestine (fire)
+	- Bladder - Kidney (water)
+	- Pericardium - San Jiao (fire)
+	- Gallbladder - Liver (wood)
+- Why They're Connected:
+	- Share same element
+	- Linked through internal pathways
+	- Influence each other
+	- Pathogens can transfer between them
+- Clinical Principle:
+	- "They can be viewed as one interconnected channel, and they can treat each other."
+- Application to Divergent Channels
+	- Each treatment includes using Yin-Yang primary channel pairs.
+	- Same strategy applies to divergent channels:
+	- When treating divergent channels:
+		- Always use the Yin-Yang paired channels
+		- Example: Stomach excess → treat ST and SP divergent channels
+		- Creates synergy
+- Why This Works:
+1. Natural Body Pairing:
+	- Interior-exterior relationship
+	- Yuan qi flows through both
+	- Treating one influences other
+2. Synergistic Effect:
+	- 1 + 1 = 3 (more than sum of parts)
+	- Combined channels create stronger reaction
+	- Mobilizes more body resources
+3. Balance Restoration:
+	- Yin and Yang must harmonize
+	- Treating both ensures balance
+	- Prevents creating new imbalance
+
+- Five-Phase Point Treatment
+- Although not in Ling Shu, later tradition developed:
+	- Using five-phase relationships through points:
+	- Example (Liver Anger with Irritability):
+		- Emotion: Anger
+		- Organ: Liver
+		- Element: Wood
+		- Controlling element: Metal
+		- Metal point on Liver channel: LV-4 (Zhong Feng, Middle Seal)
+- Theory:
+	- "Anger can injure the Liver, but sadness can relieve anger. Sadness is the emotion of the Lungs, which is metal. Metal can relieve anger."
+- Treatment:
+	- Reduce LV-4 (metal point)
+	- Brings metal energy to control wood
+	- Can reduce anger
+- Can combine with divergent channels:
+	- LV/GB divergent treatment (mobilize)
+	- LV-4 reduction (control)
+	- LV-5 plum blossom (release outlet)
+
+### PRINCIPLE 5: ENTERING AND EXITING
+- From Ling Shu Chapter 3
+	- "The spirit is the primary qi, the guest is the evil qi. Located at the door means the evil qi pursues the primary qi at those locations where the evil and the primary qi comes out and enters. Don't just stare at the disease. Begin by knowing the evil and the primary qi and which channels are diseased. For illness, know the origins. First know which channels are diseased, then treat them at those locations."
+- Translation
+- "Spirit" (primary qi):
+	- Body's righteous qi
+	- Healthy vital force
+- "Guest" (evil qi):
+	- Pathogenic factor
+	- External or internal
+- "Door":
+	- Entry and exit points
+	- Where pathogens enter/leave channels
+
+- Three Critical Diagnostic Questions
+1. Which channels are diseased?
+	- Not just which organs
+	- Which channel system(s)
+	- Specific pathways affected
+2. Where did the pathogen enter?
+	- Point of origin
+	- Path of progression
+3. Where does it need to exit?
+	- Natural exit route
+	- Treatment outlet
+
+- Clinical Application
+- Traditional approach:
+	- Focuses on disease presentation
+	- Treats where patient feels symptoms
+- Ling Shu approach:
+	- Identify affected channel(s)
+	- Determine entry point
+	- Plan exit route
+	- Treat along pathway
+- Divergent channels excel at:
+	- Identifying pathogen location in body
+	- Guiding pathogens from deep to superficial
+	- Creating exit pathways (upward/outward)
+	- Supporting release from body
+- Example: Cold Lodged in Spine
+	- Symptoms: Back pain, stiffness, cold sensation
+	- Channel Diagnosis:
+		- Bladder and Kidney divergent channels (flow along spine)
+	- Pathogen: wind-damp-cold
+	- Location: Middle of spine (T11-L4)
+- Entry/Exit Strategy:
+	- Entry: Lower back (BL-40 area)
+	- Current location: Spine
+	- Exit route: Up spine to neck (BL-10), then disperse
+	- Additional outlet: Gua sha on spine
+- Treatment:
+	- Reduce BL/KD divergent channels
+	- Create upward/outward movement
+	- Gua sha provides exterior outlet
+	- Moxibustion warms and expels
