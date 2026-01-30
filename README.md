@@ -1814,3 +1814,863 @@ These principles determine when divergent channels are appropriate:
 	- Create upward/outward movement
 	- Gua sha provides exterior outlet
 	- Moxibustion warms and expels
+
+### PRINCIPLE 6: ROOTS AND ENDS
+- What Are Roots and Ends?
+	- Roots (Beginnings):
+		- Where channel begins
+		- Well points on extremities
+		- Origin of channel flow
+	- Ends (Endings):
+		- Where channel terminates
+		- Head/face area for most
+		- Destination of channel flow
+- The Roots and Ends Table (repeated for emphasis)
+
+| Channel | Root (Beginning) | End (Ending) | Anatomical End Area |
+| Tai Yang | BL-67 (Extreme Yin) | BL-1 | Eyes (Destiny Door) |
+| Shao Yang | GB-44 (Cavity of Yin) | SI-19 | Ear (Window Basket/Listening Palace) | 
+| Yang Ming | ST-45 (Tip Exchange) | ST-8 | Great Forehead (Corner of Head) | 
+| Tai Yin | SP-1 (Hidden White) | Ren-12 | Stomach |
+| Shao Yin | KD-1 (Yong Quan) | Ren-23 | Throat (Ling Quan) | 
+| Jue Yin | LV-1 (Da Dun) | Ren-17 | Chest (Tan Zhong)  |
+|-------------------------------------------------------|
+
+- Why This Matters for Divergent Channels
+1. Pathogen Entry Points:
+	- "It is at these beginnings and endings that pathogens from the primary channels and organs can enter the divergent channels."
+	- Pathogens can enter at root or end
+	- Transfer from primary → divergent channels
+	- Transfer from organs → divergent channels
+2. Treatment Access Points:
+	- Can treat divergent channels from extremities (roots)
+	- Can treat from head/torso (ends)
+	- Provides more treatment options than just confluent points
+3. Pathway Description:
+	- Roots and ends describe the range and path of channel flow:
+	- From extremity to head/torso
+	- Shows extent of channel influence
+	- Reveals areas that can be treated
+	- Different from Confluent Points
+- Confluent Points:
+	- Where Yin-Yang pairs unite
+	- Usually at major joints (BL-40, BL-10, etc.)
+- Root/End Points:
+	- Begin at extremities (well points)
+	- End at head/torso
+	- Some overlap with confluent points, some don't
+- Clinical Value:
+	- Roots/ends offer additional treatment points when:
+		- Confluent points insufficient
+		- Need to access from extremities
+		- Want to stimulate entire channel range
+- Clinical Application
+	- Option 1 - Use Confluent Points:
+		- BL-40 (earth), BL-10 (heaven)
+		- Standard divergent channel approach
+	- Option 2 - Use Root/End Points:
+		- BL-67 (root), BL-1 (end)
+		- Stimulates entire channel from beginning to end
+	- Option 3 - Combine Both:
+		- Needle root point (BL-67)
+		- Needle lower confluent (BL-40)
+		- Needle pathway points (Hua Tuo Jia Ji)
+		- Needle upper confluent (BL-10)
+		- Needle end point (BL-1)
+		- Creates maximum channel stimulation!
+- Example Treatment Using Roots/Ends
+	- Condition: Liver qi stagnation with anger
+		- Root/End Approach:
+			- Root: LV-1 (Da Dun) - beginning
+			- Pathway: LV-5 (plum blossom - luo point)
+			- End: Ren-17 (Tan Zhong) - chest ending
+			- Additional: GB-1 (Liver divergent ending)
+	- This approach:
+		- Stimulates entire Liver channel range
+		- From foot to chest
+		- Releases through multiple outlets
+		- More comprehensive than confluent points alone
+### PRINCIPLE 7: FIFTY CYCLES
+- From Ling Shu Chapter 5: "Roots and Ends"
+	- "Nourishing (ying) qi circulates 50 times per day. If it does not circulate 50 times it reflects an imbalance of the channels and organs."
+- What This Means
+	- Normal circulation:
+		- Ying qi completes 50 full cycles daily
+		- Through all 12 primary channels
+		- Nourishes organs and channels evenly
+	- Abnormal circulation (fewer than 50):
+		- Beginning of "chaos" (imbalance)
+		- Channels and organs not properly nourished
+		- Leads to illness
+- The Two Circulation Patterns
+1. Roots and Endings Flow:
+	- Described in this chapter
+		- From extremities to head/torso
+		- Shows range of each channel
+2. Nourishing Cycle (Ling Shu Chapter 16):
+	- Daily meridian clock
+	- Stomach → Lung → Large Intestine → ... → Liver → back to Lung
+	- Plus branch to Du and Ren channels
+- Both patterns are maps for:
+	- Diagnosis
+- Treatment planning
+	- Understanding pathogen transfer
+- Clinical Application
+	- If ying qi cycle is disrupted:
+		- Example: Lung Deficiency
+			- Strategy 1 - Direct Treatment:
+				- Reinforce Lung channel points
+				- LU-9 (source), LU-1 (mu), etc.
+			- Strategy 2 - Support Cycle Flow:
+				- Treat Ren-12 (zhong wan)
+				- Where ying qi cycle begins (middle of Stomach)
+				- Reinforcing Ren-12 → reinforces entire cycle → benefits Lungs
+				- Earth reinforcing Metal (five-phase relationship)
+			- Strategy 3 - Combine with Divergent Channels:
+				- Reinforce LU/LI divergent channels
+				- Treat Ren-12
+				- Reinforce LU-9
+				- Creates comprehensive nourishment
+- Imbalances Can Follow:
+1. Roots/Endings Pattern:
+	- From extremity to head
+	- Along channel pathway
+2. Ying Qi Cycle Pattern:
+	- From organ to organ
+	- Following daily clock sequence
+- Diagnosis should consider:
+	- Which pattern is patient following?
+	- Where in cycle is disruption?
+	- How to restore normal 50-cycle flow?
+- Divergent channels help restore flow by:
+	- Clearing blockages
+	- Supporting circulation
+	- Connecting to all channels
+### PRINCIPLE 8: ANATOMICAL STRUCTURES AND DIVERGENT CHANNELS
+- From Ling Shu Chapter 6
+	- "Longevity or Premature Death, to be Hard or Soft"
+- Key Teaching:
+	- Internally: Yin and Yang (organs)
+	- Externally: Yin and Yang (structures)
+- The Internal Yin-Yang
+	- Yin Organs (Zang):
+		- Heart, Lungs, Spleen, Liver, Kidneys
+		- Storage function
+- Yang Organs (Fu):
+	- Small Intestine, Large Intestine, Stomach, Gallbladder, Bladder, San Jiao
+	- Transformation and transportation
+- The External Yin-Yang
+	- At the exterior:
+		- Yin = Bones
+		- Yang = Skin
+- When Connected to Channels/Substances:
+	- Skin (Yang) includes:
+		- Exterior channels: sinew (muscle) channels
+		- Vital substance: wei qi (defensive qi)
+		- Function: protection from exterior
+	- Bones (Yin) include:
+		- Deep channels: eight extraordinary channels
+		- Vital substances: jing (essence) and yuan qi (source qi)
+		- Function: constitutional foundation
+- Two Clinical Applications
+1. Channels Connecting to Skin:
+	- Can influence muscle channels
+	- Can influence wei qi
+	- Treatment affects superficial layer
+2. Channels Connecting to Bones:
+	- Can influence eight extraordinary channels
+	- Can influence jing and yuan qi
+	- Treatment affects deep layer
+- Divergent Channels' Unique Position
+	- Divergent channels connect to:
+		- Superficial layers (skin)
+		- Bones (and joints between bones)
+- Therefore, divergent channels can:
+	- Influence muscle channels and wei qi (through skin connection)
+	- Influence extraordinary channels, jing, and yuan qi (through bone connection)
+	- Treat both superficial and deep simultaneously
+- This is why they can treat such a wide range of conditions!
+- Clinical Example
+	- Condition: Chronic knee pain (bone/joint level) with muscle tension
+	- Layers Affected:
+		- Wei layer: Muscle tension (muscle channels)
+		- Yuan layer: Bone/joint (jing level)
+	- Treatment Using This Principle:
+		- Standard approach (primary channels only):
+			- Needle ST-35, ST-36, SP-9, SP-10
+			- May help superficial aspects
+			- May miss deep bone level
+		- Divergent channel approach:
+			- ST/SP divergent channels
+			- Connect to skin → treats muscles/wei qi
+			- Connect to bones → treats jing/constitutional level
+			- Add primary channel points (ST-36, SP-9)
+			- Add local points around knee
+		- Result:
+			- Treats superficial and deep simultaneously
+			- More comprehensive and effective
+			- Addresses root cause (constitutional level)
+
+### PRINCIPLE 9: DISTAL NEEDLING
+- From Ling Shu Chapter 7: "On Governing the Needles"
+	- Presents the Nine Methods of Needling
+- Two Especially Relevant Methods
+	- Method 2: "Needle the Distant Road"
+		- "Needle the lower part of the body to treat conditions of the upper part of the body."
+	- Method 8: "Opposite Needling"
+		- "Treat the right side when disease is on the left side, and treat the left side for conditions on the right side."
+- Distal Needling Theory
+- Two principles:
+	- 1. Upper-Lower Relationship:
+		- Lower body treats upper body
+		- Upper body treats lower body
+		- Based on body's integrated wholeness
+	- 2. Left-Right Relationship (Contra-lateral):
+		- Right treats left
+		- Left treats right
+		- Based on body's bilateral symmetry
+- Why This Works
+	- Channel Connectivity:
+		- All channels flow through entire body
+		- Treating one area influences whole channel
+		- Distal points often more powerful
+- Qi Movement:
+	- Needling distal guides qi toward affected area
+	- Creates stronger movement than local needling alone
+	- "Calls" qi to problem area
+	- Reduces Local Interference:
+	- Sometimes local area too inflamed to needle directly
+	- Distal needling avoids aggravation
+	- Treats through channel connection
+- Application to Divergent Channels
+	- Divergent channels particularly suited for distal needling because:
+	1. Long Pathways:
+		- Flow from legs to head (foot channels)
+		- Flow from arms to head (hand channels)
+	- Can access distant areas
+	2. Confluent Points Often Distal:
+		- BL-40 (knee) treats spine/head
+		- ST-30 (hip) treats face/head
+		- GB-30 (hip) treats face
+	3. Root/End Point System:
+		- Roots at extremities
+		- Ends at head/torso
+		- Built-in distal-to-proximal treatment
+- Clinical Examples
+	- Example 1: Headache
+		- Location: Tai Yang (Bladder) headache
+		- Distal approach:
+		- Root point: BL-67 (foot)
+		- Lower confluent: BL-40 (knee)
+		- Treats head from legs
+- Why effective:
+	- Draws qi downward from head
+	- Relieves excess at head
+	- Uses gravity (descending)
+	- Example 2: Shoulder Pain (Right)
+		- Contra-lateral approach:
+			- Treat left shoulder area (opposite)
+			- Treat right hip/leg (lower body for upper)
+		- Combine: treat left hip
+			- Creates powerful qi movement to right shoulder
+		- Using divergent channels:
+			- Left LI/LU divergent channels (opposite)
+			- Right ST/SP divergent channels (upper-lower)
+			- Combined effect stronger than either alone
+- The Three Depths Revisited
+	- From same chapter (Ling Shu Chapter 7):
+		- "Thus, the 'rule of acupuncture' says, to begin, needle shallowly in order to expel the evil qi and to let the blood and qi come forward. Afterwards, needle deeply in order to affect the yin qi's evil. Finally, needle extremely deeply in order to descend to the valley qi."
+- Three Levels Confirmed:
+	- Shallow = wei level (sinew, luo, divergent - superficial)
+	- Middle = ying level (primary channels)
+	- Deep = yuan level (extraordinary, divergent - deep, jing)
+	- Treatment must needle at correct level for condition!
+- Divergent Channel Distal Treatment Strategy
+	- For conditions in the head/neck:
+		- Step 1: Needle distal (lower body)
+			- Foot divergent channels (BL/KD, GB/LV, ST/SP)
+			- Root points or lower confluent points
+		- Step 2: Needle pathway points (if needed)
+			- Along spine, torso, neck
+		- Step 3: Needle local/proximal (if needed)
+			- Head/neck area
+		- Upper confluent points
+- This sequence:
+	- Draws qi from affected area first (distal)
+	- Opens pathway (middle)
+	- Treats locally (proximal)
+	- Most effective order
+
+### PRINCIPLE 10: EMOTIONS AND DIVERGENT CHANNELS
+- From Ling Shu Chapter 8: "The Roots of Spirit"
+- Key Teaching:
+	- Emotions and organs interconnected
+	- Organ conditions influence emotions
+	- Emotional states influence organs
+- The Two-Way Relationship
+	- Organ → Emotion:
+		- Physical organ imbalance creates emotional symptoms
+		- Example: Kidney deficiency → fear
+		- Example: Liver stagnation → anger
+	- Emotion → Organ:
+		- Chronic emotional states damage organs
+		- Example: Prolonged anger → Liver stagnation → Liver blood deficiency
+		- Example: Chronic fear → Kidney depletion
+- How Emotions Transfer to Channels
+	- Process:
+		- Stress/lifestyle affects primary channels
+		- Primary channels connect to organs
+		- Organs affected
+		- Emotions arise (or emotions cause organ stress)
+- Connecting channels hold emotions (in blood)
+	- Emotions can transfer to divergent channels
+	- Connecting (luo) channels:
+		- "Blood channels"
+		- Emotions stored in blood
+		- Can transfer emotions to organs
+- Divergent channels can:
+	- Release emotions from luo channels
+	- Release emotions from organs
+	- Support emotional transformation
+- Clinical Strategy for Emotional Conditions
+- Three-Part Treatment:
+	- Part 1 - Connecting Channels:
+		- Treat luo points of affected organs
+		- Release emotions from blood
+		- Create outlet (plum blossom, bloodletting)
+	- Part 2 - Divergent Channels:
+		- Mobilize emotional energy
+		- Guide toward release
+		- Create upward/outward movement
+	- Part 3 - Primary Channels:
+		- Regulate organ function
+		- Restore normal qi flow
+		- Support with herbs if needed
+- Example: Anger (from earlier case study)
+	- Diagnosis: Liver qi stagnation, repressed anger, hun imbalance
+	- Treatment:
+	1. Luo channel release:
+		- Plum blossom right LV-5 (Liver luo point)
+		- Plum blossom left GB-37 (Gallbladder luo point)
+		- Creates outlet for blood/emotions
+	2. Divergent channel mobilization:
+		- Reduce Ren-2 (lower confluent)
+		- Reduce left GB-1 (upper confluent)
+		- Reduce Du-20 (guide to head/out)
+		- Reduce right GB-1 (upper confluent)
+		- Re-reduce Ren-2 (complete circuit)
+		- Reduce LV-14 (pathway point, Liver mu)
+	3. Primary channel regulation:
+		- Reduce LV-3 (source point)
+		- Regulate Liver qi
+	4. Supporting channels:
+		- Reduce SJ-6 (guides outward through San Jiao)
+		- Reduce GB-41 (horary point, assists release)
+	- Result: Comprehensive emotional release treatment
+- Why Divergent Channels for Emotions?
+	1. Multi-layer access:
+		- Emotions can lodge at any layer (wei, ying, yuan)
+		- Divergent channels access all layers
+	2. Constitutional transformation:
+		- Chronic emotions become constitutional
+		- Divergent channels reach yuan (deep) level
+		- Can transform constitutional patterns
+	3. Supporting role:
+		- Enhance luo channel treatments
+		- Support primary channel treatments
+		- Create synergy
+	4. Mobilization:
+		- Create movement of stuck emotional energy
+		- Guide toward release
+		- Prevent re-lodging
+
+### PRINCIPLE 11: RIVERS AND CHANNELS
+- From Ling Shu Chapter 12
+	- This chapter presents how the acupuncture channels mirror water flows in the environment.
+- The Water-Channel Correspondence
+	- Ancient China's major rivers were mapped to body channels:
+	- The pattern of rivers matched to channels = exact distribution of divergent channels
+- Key Insight:
+	- "The early practitioners saw the flow of rivers and waterways as a model for vital substance flow in the body."
+- The Heaven-Earth Body Division
+	- Chapter 12 divides the body:
+		- Heaven (上 Shang):
+			- Above the waist
+			- Upper body- Yang region
+		- Earth (下 Xia):
+			- Below the waist
+			- Lower body
+			- Yin region
+- Confluent Points: Heaven and Earth
+	- This division influences confluent point nomenclature:
+| Channel Pair | Earth Point (Lower) | Heaven Point (Upper | 
+| )Bladder-Kidney | BL-40 (委中 Wei Zhong, "Middle of Crook") - knee | BL-10 (天柱 Tian Zhu, "Celestial Pillar") - neck | 
+| Gallbladder-Liver | Ren-2 or GB-30 - lower | GB-1 - head | 
+| Stomach-Spleen | ST-30 - hip | BL-1/LI-20/ST-1 - face | 
+| Small Intestine-Heart | GB-22 - chest | BL-1 - eye | 
+| San Jiao-Pericardium | Ren-12 - abdomen | SJ-16/GB-12 - head | 
+| Large Intestine-Lung | ST-12 - chest | LI-18 - neck |
+
+- Clinical Application
+	- Standard divergent channel treatment:
+		- Needle earth (lower) confluent point first
+		- Then heaven (upper) confluent point
+		- Pathway points between them
+		- Creates flow from earth to heaven (lower to upper)
+	- Example (Bladder-Kidney):
+		- Right BL-40 (earth/knee)
+		- Right BL-10 (heaven/neck)
+		- Left BL-10 (heaven/neck)
+		- Left BL-40 (earth/knee)
+		- Pathway points: Du-4, BL-23, Hua Tuo Jia Ji, etc.
+- This order:
+	- Follows natural upward flow of divergent channels
+	- Mimics water flowing from earth (below) to heaven (above)
+	- Creates ascending momentum
+- Water Flow Principles Applied to Treatment
+	- Rivers in nature:
+		- Flow from high to low (gravity)
+		- Can be dammed (creating stagnation)
+		- Can flood (excess)
+		- Can dry up (deficiency)
+		- Smooth flow = healthy environment
+- Channels in body:
+	- Flow along specific pathways
+	- Can be blocked (stagnation)
+	- Can have excess (flooding)
+	- Can have deficiency (drying up)
+	- Smooth flow = health
+- Divergent channels as waterways:
+	- Flow upward (ascending nature)
+	- Can clear blockages (dredge)
+	- Can drain excesses (reduce)
+	- Can nourish deficiencies (reinforce)
+	- Restore smooth flow
+- The Imagery in Treatment
+	- When treating divergent channels, visualize:
+	- Reducing:
+		- Opening dam
+		- Releasing flood waters
+		- Clearing blockage
+		- Allowing stagnant water to flow out
+	- Reinforcing:
+		- Directing rivers to dry areas
+		- Irrigating fields
+		- Nourishing the land
+		- Filling reservoirs
+	- Dredging:
+		- Clearing river bed
+		- Removing debris
+		- Restoring natural flow
+		- Creating smooth passage
+- This imagery helps:
+	- Clarify treatment intention
+	- Guide needling technique
+	- Enhance treatment effectiveness
+	- "Where mind goes, qi follows"
+
+### PRINCIPLE 12: THE MUSCLE CHANNELS
+- This chapter presents:
+	- Muscle (sinew/tendon) channel pathways
+	- Conditions of each muscle channel
+- Monthly susceptibilities
+	- Common Patterns:
+		- Spasms and cramping along pathways
+		- Pain in muscles/tendons
+		- Joint dysfunction
+		- Limited range of motion
+		- Cold/heat affecting muscles
+- Pathogenic Factors:
+	- Wind (most common)
+	- Cold
+	- Damp
+	- Combination (wind-damp, wind-cold, damp-cold)
+- Divergent Channels Support Muscle Channels
+- Two Functions:
+	- Function 1: Release Pathogens FROM Muscle Channels
+	- Process:
+		- Pathogen lodges in muscle channel (wind-damp-cold)
+		- Divergent channel treatment mobilizes pathogen
+		- Moves pathogen from deep muscles to surface
+		- Creates upward/outward movement
+	- Then:
+		- Muscle channel treatment releases from body
+		- Add modality: gua sha, cupping, plum blossom
+	- Example (Back Pain):
+		- Muscle channel affected:
+		- Bladder sinew channel (para-spinal muscles)
+	- Treatment:
+		- Divergent channels: BL/KD divergent (move pathogen up/out)
+		- Muscle channels: Superficial needling along muscles
+		- Release modality: Gua sha on entire back
+		- Warm: Moxibustion to expel cold
+	- Function 2: Release Pathogens IN Divergent Channels
+		- Process:
+			- Pathogen transfers from muscle → divergent channels
+			- Now lodged in divergent channel pathways
+			- Divergent channel treatment releases
+			- Guides back to surface
+			- Muscle channel/modality completes release
+			- Why This Transfer Happens:
+				- Channels interconnected
+				- Body diverts pathogens to protect deeper organs
+				- Divergent channels can store pathogens temporarily
+				- If not treated → becomes chronic
+- Combined Treatment Strategy
+- For Muscle Channel Conditions:
+	- Option 1 - Muscle Channels Only:
+		- Ashi points
+		- Superficial needling
+		- Gua sha/cupping
+	- Option 2 - Muscle + Divergent:
+		- Divergent channel treatment (mobilize deep pathogens)
+		- Muscle channel treatment (release superficial)
+		- Modality (create outlet: gua sha, cupping, plum blossom)
+		- Moxibustion (if cold present)
+	- Option 2 is more comprehensive and often more effective
+- Example Protocol
+		- Condition: Gallbladder muscle channel - lateral leg/thigh cramping
+	- Treatment:
+		- Part 1 - Divergent Channels:
+			- Reduce GB/LV divergent channels
+			- Ren-2, GB-1, GB-1, Ren-2
+			- Mobilizes stuck qi in channel
+		- Part 2 - Muscle Channel:
+			- Superficial needling along GB sinew channel
+			- GB-31, GB-34, GB-39 (shallow)
+			- Ashi points along lateral leg
+		- Part 3 - Release:
+			- Gua sha lateral leg/thigh
+			- Allows wind-damp to release
+			- Creates visible outlet (sha/redness)
+		- Part 4 - Support:
+			- GB-40 (source point) if deficiency
+			- GB-38 (fire point) if excess heat
+			- Adjust based on diagnosis
+- Monthly Cycle Application
+- From Chapter 6:
+	- Each muscle channel relates to a lunar month.
+	- If condition appears/worsens in specific month:
+		- Check that month's muscle channel
+		- Likely involved even if not obvious location
+	- Example:
+		- Patient's shoulder pain worse every February
+		- February = Bladder muscle channel
+		- Even if pain in shoulder (LI/SJ area)
+		- Include Bladder muscle channel in diagnosis
+		- May be root cause or contributing factor
+	- Treatment could include:
+		- Bladder muscle channel points
+		- Bladder divergent channel
+		- Local shoulder points
+
+### PRINCIPLE 13: MEASUREMENTS IN REFERENCE TO THE BONES
+- From Ling Shu Chapter 14
+	- This chapter provides detailed measurements of major bones.
+	- Why an entire chapter on bones?
+- The Significance of Bones in Chinese Medicine
+- Chapter 13 (before bone chapter):
+	- Muscle channels
+- Chapter 14 (bone chapter):
+	- Bone measurements
+- Why together?
+	- Tendons connect to bones
+	- They influence each other
+	- Anatomical unit
+- Bones' Dual Nature
+	- Anatomically (Superficial/Wei Layer):
+		- Bones attach to tendons and muscles
+		- Part of musculo-skeletal system
+		- Palpable, external structure
+	- Energetically (Deep/Yuan Layer):
+		- Bones contain jing (essence)
+		- Western: bone marrow = stem cells
+		- Connected to eight extraordinary channels
+		- Source qi (yuan qi)
+		- Constitutional level
+- Bones = bridge between wei (superficial) and yuan (deep)!
+
+#### Bones and Vital Substances
+| Aspect | Connection | Substance | 
+| External | Muscles, tendons | Wei qi (defensive) | 
+| Internal | Marrow, jing | Yuan qi (source) | 
+| Channels | Eight extraordinary | Jing (essence) |
+| Function | Structure, protection | Constitutional foundation | 
+
+#### Clinical Significance for Divergent Channels
+- Divergent channels:
+	1. Begin/End at Bones:
+		- Confluent points mostly at major bones/joints
+		- BL-40 (knee joint)
+		- BL-10 (cervical vertebrae)
+		- ST-30 (hip joint/pubis)
+		- GB-30 (hip joint)
+	2. Flow Through Joint Spaces:
+		- Large bones have spaces around them (joints)
+		- Pathogens can accumulate in these spaces
+		- Divergent channels access these areas
+	3. Influence Both Wei and Yuan:
+		- Through external bone connection → wei qi, muscles
+		- Through internal bone connection → yuan qi, jing, extraordinary channels
+#### Pathogen Accumulation in Joints
+- Process:
+	- Pathogen enters body (wind-damp-cold)
+	- Body diverts to joint spaces (protective mechanism)
+	- Protects internal organs temporarily
+	- But creates chronic joint condition if not cleared
+- Why joints?
+	- Large spaces available
+	- Away from vital organs
+	- Can be contained there
+	- If not cleared:
+		- Becomes chronic arthritis, bi syndrome
+		- Affects bones, tendons, muscles
+		- Influences extraordinary channels (constitutional)
+#### Divergent Channels Excel at Bone/Joint Treatment
+- Because they:
+	1. Access Joint Spaces:
+		- Confluent points at major joints
+		- Pathways flow through joints
+		- Can reach accumulated pathogens
+	2. Influence Multiple Layers:
+		- Wei layer (muscles around bones)
+		- Yuan layer (jing in bones)
+	- Can clear pathogens AND strengthen constitution
+	3. Connect to Extraordinary Channels:
+		- Through bone/jing connection
+		- Can transform constitutional weakness
+		- Prevent future accumulation
+#### Treatment Strategy for Joint Conditions
+- Example: Chronic Knee Pain
+	- Layers involved:
+		- Wei: Muscle tension around knee
+		- Ying: Primary channel stagnation
+		- Yuan: Bone/jing level depletion or pathogen lodging
+	- Standard approach (primary channels only):
+		- ST-35, ST-36, SP-9, SP-10, GB-34
+		- Treats ying layer primarily
+		- May miss wei and yuan layers
+	- Divergent channel approach:
+		- Divergent channels (wei + yuan):
+		- ST/SP divergent channels
+		- BL/KD divergent channels (if back of knee)
+		- Access both superficial and deep
+		- Primary channels (ying):
+		- ST-36, SP-9 (support divergent treatment)
+		- He-sea points for joint
+		- Local points:
+			- Surround knee (ST-35, SP-10, etc.)
+		- Ashi points
+		- Modalities:
+			- Moxibustion (warm, expel cold from bones)
+			- Gua sha or cupping (release from muscles)
+	- This treats:
+		- Muscles (wei)
+		- Channels and organs (ying)
+		- Bones and jing (yuan)
+		- Comprehensive treatment
+- Hua Tuo on Movement
+- Famous quote:
+	- "The moving hinge collects no rust."
+- Application:
+	- Daily movement clears joints
+	- Prevents pathogen accumulation
+	- Maintains smooth qi/blood flow
+	- Prevents chronic conditions
+- Divergent channels:
+	- Assist in clearing joint spaces
+	- Support healthy circulation
+	- Prevent "rust" (stagnation/pathogen accumulation)
+- Treatment + Qi Gong/Tai Chi:
+	- Acupuncture clears existing stagnation
+	- Movement prevents future accumulation
+	- Combined = long-term health
+### PRINCIPLE 14: NEEDLING TECHNIQUE METHODS
+- From Ling Shu Chapter 1
+	- "The method of acupuncture is to tonify hollowness, disperse fullness, and dredge stasis. When these methods are applied, the pathogen will be weakened. Needling slow, then quick, produces tonification. Needling quick, then slow, produces reducing."
+#### The Three Major Treatment Strategies
+1. Reinforcing (補 Bu) - Tonify Hollowness:
+	- Guide vital substances TO an area
+	- Supplement deficiency
+	- Nourish and strengthen
+2. Reducing (瀉 Xie) - Disperse Fullness:
+	- Guide substances/pathogens AWAY from area
+	- Drain excess
+	- Release and expel
+3. Dredging (疏通 Shu Tong) - Clear Stasis:
+	- Unblock stagnation
+	- Restore circulation
+	- Regulate flow
+- All treatments should include ONE of these actions!
+#### The Three Reinforcing Methods
+- Method 1 - Respiration:
+	- Insert needle: On patient's exhalation
+	- Withdraw needle: On patient's inhalation
+	- Rationale: Exhalation = qi entering body, draws qi to point
+- Method 2 - Insertion Speed:
+	- Insert needle: Slowly
+	- Withdraw needle: Quickly
+	- Rationale: Slow in = gather; quick out = retain
+- Method 3 - Covering the Hole:
+	- After withdrawal: Immediately cover hole with cotton/finger
+	- Rationale: Prevents qi from escaping
+#### The Three Reducing Methods
+- Method 1 - Respiration:
+	- Insert needle: On patient's inhalation
+	- Withdraw needle: On patient's exhalation
+	- Rationale: Inhalation = qi exiting body, follows qi out
+- Method 2 - Insertion Speed:
+	- Insert needle: Quickly
+	- Withdraw needle: Slowly
+	- Rationale: Quick in = pierce pathogen; slow out = draws pathogen out
+- Method 3 - Covering the Hole:
+	- After withdrawal: Wait before covering (or don't cover)
+	- Rationale: Allows pathogen to continue exiting
+- Applying to Yin and Yang Organs
+	- Yin Organs (Zang) - Storage Function
+	- Nature: Gather and store
+	- When deficient:
+		- Apply reinforcing methods
+		- Guide qi TO organ
+		- Strengthen storage capacity
+		- Example: Kidney Deficiency
+		- Treatmen:
+			- Reinforce Kidney points
+			- Use reinforcing respiration (needle on exhalation, withdraw on inhalation)
+			- Use reinforcing speed (slow in, quick out)
+			- Cover hole immediately
+			- Can use all three or choose most appropriate
+	- Yang Organs (Fu) - Transformation Function
+		- Nature: Empty and release
+		- When excess:
+		- Apply reducing methods
+		- Guide pathogenic qi AWAY from organ
+		- Facilitate emptying/releasing
+		- Example: Stomach Fire
+		- Treatment:
+			- Reduce Stomach points (ST-44, ST-45)
+			- Use reducing respiration (needle on inhalation, withdraw on exhalation)
+			- Use reducing speed (quick in, slow out)
+			- Leave hole open/uncovered
+			- Can combine methods
+
+#### Application to Divergent Channels
+- Reinforcing Divergent Channels
+	- When:
+		- Organ deficiency
+		- Need to guide resources TO area
+		- Supporting restoration
+	- Method:
+		- Confluent points: Reinforce with slow in, quick out
+		- Pathway points: Reinforce if needed
+		- Primary channel points: Reinforce source/sea points
+		- Direction: Guide qi inward/downward toward organs
+	- Example: Reinforce Spleen/Stomach
+		- Divergent channel treatment:
+		- Left ST-30 (reinforce)
+		- Left ST-1 or LI-20 (reinforce)
+		- Du-20 (guide across)
+		- Right ST-1 or LI-20 (reinforce)
+		- Right ST-30 (reinforce)
+		- Plus:
+			- Ren-12 (reinforce - on pathway, Stomach mu point)
+		- SP-3, ST-36 (reinforce - source/sea points)
+		- All needled with reinforcing technique
+- Reducing Divergent Channels
+	- When:
+		- Organ excess
+		- Pathogen needs releasing
+		- Clearing heat/stagnation
+		- Method:
+			- Confluent points: Reduce with quick in, slow out
+			- Pathway points: Reduce to move pathogen along
+			- Luo points: Plum blossom/bloodlet (create outlet)
+			- Direction: Guide qi outward/upward away from organs
+	- Example: Reduce Liver Fire (Anger)
+		- Divergent channel treatment:
+		- Ren-2 (reduce)
+		- Left GB-1 (reduce)
+		- Du-20 (reduce - guides upward)
+		- Right GB-1 (reduce)
+		- Re-stimulate Ren-2 (reduce)
+	- Plus:
+		- LV-14 (reduce - pathway point, Liver mu)
+		- LV-5, GB-37 (plum blossom - luo points, creates outlet)
+		- LV-3 (reinforce to move qi upward, paradoxical technique)
+	- All needled with reducing technique except LV-3
+- Dredging Divergent Channels
+	- When:
+		- Stagnation without clear excess/deficiency
+		- Need to restore circulation
+		- Bi syndrome (wind-damp-cold lodged)
+		- Method:
+			- Confluent points: Even technique or alternate reinforce/reduce
+			- Pathway points: Focus on stagnant areas
+			- Distal points: Open flow
+			- Modalities: Gua sha, cupping, moxibustion essential
+	- Example: Bi Syndrome in Spine
+		- Divergent channel treatment:
+		- BL-40 (even technique or slight reduce)
+		- BL-10 (even technique or slight reduce)
+		- Pathway: Hua Tuo Jia Ji at affected levels (even)
+		- Du channel points (even)
+	- Plus:
+		- BL-11 (influential point of bone)
+		- SI-3, BL-65 (stream points for bi syndrome)
+		- Moxibustion (warm, move stagnation)
+		- Gua sha (release pathogen)
+- The Importance of Technique
+	- Without proper technique:
+		- Treatments less effective
+		- May not achieve goal (reinforce/reduce/dredge)
+		- Body receives unclear message
+	- With proper technique:
+		- Clear message sent to body
+		- Body responds more effectively
+		- Treatment goal achieved
+	- Results more consistent
+- Integration: Technique + Strategy + Intention
+	- Complete treatment requires:
+	1. Clear Diagnosis:
+		- Which channels affected?
+		- Which layer (wei/ying/yuan)?
+		- What needs to happen (reinforce/reduce/dredge)?
+	2. Appropriate Channel Selection:
+		- Primary channels?
+		- Divergent channels?
+		- Combined approach?
+	3. Correct Points:
+		- Confluent points
+		- Pathway points
+		- Supporting points
+	4. Proper Technique:
+		- Reinforcing methods
+		- Reducing methods
+		- Dredging methods
+	5. Clear Intention:
+		- Where should qi go?
+		- What should happen?
+		- Visualize the goal
+- When all five align:
+	- Treatment highly effective
+	- Body responds powerfully
+	- Healing accelerated
+#### SYNTHESIS: THE 14 PRINCIPLES WORKING TOGETHER
+- How These Principles Integrate
+- When patient presents:
+	1. Three Layers - Determine depth of condition
+	2. Nine Needles - Select appropriate technique for layer
+	3. Major Channels - Identify primary channel involvement
+	4. Yin-Yang Pairs - Treat paired channels together
+	5. Entering/Exiting - Know where pathogen entered, plan exit
+	6. Roots/Ends - Use full channel range
+	7. Fifty Cycles - Consider ying qi circulation
+	8. Anatomical Structures - Assess bone/skin involvement
+	9. Distal Needling - Treat from distance when appropriate
+	10. Emotions - Evaluate psycho-emotional component
+	11. Rivers/Channels - Visualize flow, use heaven/earth points
+	12. Muscle Channels - Check superficial involvement
+	13. Bones - Assess constitutional/jing level
+	14. Needling Technique - Apply reinforce/reduce/dredge
+
+
