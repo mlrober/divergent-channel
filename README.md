@@ -2673,4 +2673,513 @@ These principles determine when divergent channels are appropriate:
 	13. Bones - Assess constitutional/jing level
 	14. Needling Technique - Apply reinforce/reduce/dredge
 
+#### Two Primary Functions:
+- Direct treatment - conditions in divergent channel pathways
+- Support treatment - conditions in any other channel system
+#### FOUNDATION NEEDLING METHODS
+- The Three Treatment Goals
+- Every divergent channel treatment should include ONE of these:
+1. Reinforce (補 Bu):
+	- Goal: Guide vital substances TO an area
+	- Action: Reinforce an organ or channel
+	- When: Deficiency patterns
+2. Reduce (瀉 Xie):
+	- Goal: Guide pathogenic factors or substances AWAY
+	- Action: Release pathogenic factors or excess
+	- When: Excess patterns
+	- Usually: To the exterior (outward)
+3. Dredge (疏通 Shu Tong):
+	- Goal: Increase circulation to clear stagnations
+	- Action: Restore normal flow
+	- When: Stagnation without clear excess/deficiency
+#### HOW DIVERGENT CHANNELS MOBILIZE RESOURCES
+- The Energy Field Concept
+- Divergent channels are energy fields (channels) that:
+	- Influence other channels
+	- Influence entire body
+	- Create reactions throughout connected systems
+	- Permeate the channels they're connected to
+- Think of them as:
+	- Catalyst for body's healing response
+	- Coordinator of multiple channel systems
+	- Mobilizer of body's resources
+- The Linking Function
+	- Divergent channels are one of the most potent channel systems for linking:
+	- Channels to channels
+	- Areas to areas
+	- Layers to layers
+	- Resources to needs
+- This linking brings:
+	- Clarity of treatment focus
+	- Mobilization of body's healing power
+	- Comprehensive treatment response
+
+#### The Body's Messages
+- Ling Shu emphasizes:
+	- Importance of knowing which channels are imbalanced
+	- Symptoms/conditions/diseases identify channels/organs
+	- Qualities and correspondences are body's messages
+	- Clarity about affected channel/organ is essential
+- This is the body speaking - we must listen!
+
+#### The Practitioner's Message
+- Equally important:
+	- Order of channels treated = message to body
+	- Order of needle insertion = critical part of message
+	- Exact sequence creates specific effect
+- The treatment is a conversation:
+	- Body tells us what's wrong (diagnosis)
+	- We respond with clear message (treatment order)
+- The Treatment Goal
+	- When needling divergent channels:
+		- Primary Goal:
+		- Stimulate the channels
+		- Create reaction along pathways
+		- Activate their connections
+	- This reaction:
+		- Forms basis of treatment effectiveness
+		- Mobilizes body's resources
+		- Creates healing synergy
+- Two Main Functions of the Reaction
+	- Function 1 - Within Its Own Channels:
+		- Reaction in divergent channel itself
+		- Reaction in Yin-Yang paired divergent channel
+		- Creates movement/change within the pair
+	- Function 2 - Throughout the Body:
+		- Reaction affects other channel systems
+		- Influences vital substances
+		- Affects pathogenic factors
+		- Impacts entire treatment
+- Example: Chronic Anger Treatment
+- Patient: Chronic anger, wants to release pattern
+	- Diagnosis:
+		- Liver qi stagnation
+		- Repressed anger
+		- Hun spirit repressed
+	- Treatment Strategy:
+		- Part 1 - Luo Channel (Blood/Emotion Release):
+			- Plum blossom or bloodlet Liver and Gallbladder luo points
+			- Creates outlet for anger to exit
+			- Releases emotional qi stored in blood
+- Part 2 - Divergent Channel (Mobilization):
+	- Gallbladder/Liver divergent channel treatment
+	- Guides anger qi to surface
+	- Brings to luo points for release
+- Part 3 - Modality Enhancement:
+	- Bloodletting, plum blossom, gua sha, or moxibustion
+	- Provides physical outlet
+	- Completes release process
+- How They Work Together:
+	- Divergent channels guide emotional energy outward/upward
+	- Luo channel treatment provides outlet
+	- Modality ensures complete release
+- Synergy:
+	- Each part enhances the others
+	- Combined effect greater than sum of parts
+	- Comprehensive emotional release
+
+#### A FRAMEWORK FOR DIVERGENT CHANNEL TREATMENT PLANS
+#### The Treatment Design Process
+- After diagnosis and channel selection, ask:
+	- "How do I stimulate the entire channel(s)?"
+	- Not just one or two points - the ENTIRE pathway!
+
+#### The Five-Module Framework
+- Module 1: Treat Confluent Points
+	- Order:
+		- Lower confluent point (earth)
+		- Upper confluent point (heaven)
+	- Purpose:
+		- Stimulates channel
+		- Creates reaction in channels
+		- Activates Yin-Yang pair
+	- Technique:
+		- Reinforce OR reduce (match treatment goal)
+	- Enhancement:
+		- Can needle Du-20 between upper confluent points
+		- Helps move treatment from one side to other
+		- Increases energetic influence
+	- Example (Spleen/Stomach Reinforcement):
+		- Left ST-30 (lower confluent)
+		- Left ST-1 (upper confluent)
+		- Du-20 (guide across)
+		- Right ST-1 (upper confluent)
+		- Right ST-30 (lower confluent)
+- Module 2: Pathway Points
+	- Selection criteria:
+		- Points in anatomical area of condition
+		- Points with functions treating the condition
+		- Points that stimulate entire channel
+	- Number of points:
+		- Enough to stimulate entire pathway
+		- Generally 2-8 points
+		- Individual practitioner skill determines optimal number
+	- Purpose:
+		- Enhance channel stimulation
+		- Target specific areas
+		- Create comprehensive effect
+	- Example (Spleen/Stomach Reinforcement):
+		- Ren-12 (on pathway, Stomach mu point, reinforces both)
+- Module 3: Yin-Yang Pair Channel
+- Apply same strategy as Module 1-2:
+	- Confluent points of paired channel
+	- Pathway points of paired channel
+- Why:
+	- Creates Yin-Yang balance
+	- Synergistic effect
+	- Stronger reaction
+- Example (Spleen/Stomach):
+	- Spleen divergent confluent: ST-30, BL-1
+	- Already included in Module 1
+	- Ren-12 benefits both (already in Module 2)
+- Module 4: Other Channel Systems
+- Select from wide range of acupuncture points:
+	- For organ deficiency, consider:
+		- Source points (yuan)
+		- Sea points (he)
+		- Front mu points
+		- Back shu points
+		- Five-phase reinforcement points
+	- For organ excess, consider:
+		- Source points (for Yang organs - helps empty)
+		- Sea points
+		- Luo points (especially with bloodletting/plum blossom)
+		- Five-phase reduction points
+		- Clearing/draining points
+	- Example (Spleen/Stomach Reinforcement):
+		- SP-3 (source point)
+		- ST-36 (sea point, also sea of grain with ST-30)
+- Module 5: Modalities
+	- Add healing modalities for synergy:
+		- Common modalities:
+			- Moxibustion (warm, tonify, expel cold)
+			- Tui na / massage (move qi/blood, relax muscles)
+			- Gua sha (release to exterior, bring pathogens to surface)
+			- Cupping (draw out, release stagnation)
+			- Plum blossom (create outlet, gentle bloodletting)
+			- Lancet bloodletting (stronger release)
+			- Liniments (topical herbs)
+	- Combining modalities with divergent channels:
+		- Increases treatment effectiveness
+		- Provides additional pathways for healing
+		- Enhances specific treatment goals
+- KEYS TO CLINICAL EFFECTIVENESS
+1. Know the Pathways
+- Essential:
+	- Study pathway descriptions thoroughly
+	- Memorize confluent points
+	- Understand anatomical areas covered
+	- Know which organs/areas connected
+- Why:
+	- Can't treat what you don't know
+- Pathway knowledge = point selection
+- Understanding pathways = understanding functions
+2. Include Points Along Pathways
+- Not just 1-2 points!
+- Classical approach:
+	- Multiple points along pathway
+	- Stimulates entire channel
+	- Creates comprehensive effect
+- Modern tendency:
+	- Only treat 1-2 confluent points
+	- Misses full potential
+	- Less effective
+- Author's recommendation:
+	- Treat confluent points
+	- Add 3-6 pathway points
+	- Stimulate entire channel
+	- Much more effective
+3. Needling Technique Matters
+- One of most important contributors to effectiveness:
+- Include:
+	- Reinforcing method (when reinforcing)
+	- Reducing method (when reducing)
+	- Even method (when dredging)
+	- Clear intention
+	- Appropriate manipulation
+- As Ling Shu teaches:
+	- Proper technique sends clear message to body
+	- Body responds more effectively
+	- Results more consistent
+4. Order of Insertion Creates Synergy
+- Plan exact order before needling:
+	- Consider:
+		- Which channels first?
+		- Which points on those channels?
+		- In what sequence?
+		- Left or right first?
+		- Distal to proximal or reverse?
+		- The order creates:
+			- Energetic flow
+			- Directional movement
+			- Healing synergy
+	- Example order (Liver/Gallbladder Reduction):
+		- Ren-2 (earth confluent - start flow)
+		- Left GB-1 (heaven confluent - establish left)
+		- Right GB-1 (heaven confluent - establish right)
+		- Re-stimulate Ren-2 (complete circuit)
+		- LV-14 (pathway point, Liver mu)
+		- LV-5 plum blossom (luo point - outlet)
+		- GB-37 plum blossom (luo point - outlet)
+	- This specific order:
+		- Starts at earth (lower)
+		- Moves to heaven (upper)
+		- Balances left/right
+		- Returns to earth (completes circuit)
+		- Adds organ support
+		- Creates outlet for release
+
+#### THE DIVERGENT CHANNELS AND THE CHANNEL SYSTEM
+##### Key principle:
+	- "The divergent channels can be used with all the channel systems."
+- Five Methods of Support
+
+#### METHOD 1: Treating Divergent Channel Pathways
+- Direct treatment of conditions in divergent channel pathways
+- Macro view:
+	- "All pathologies and imbalances of the body have the potential to move into the divergent channels."
+- Process:
+	- Make diagnosis
+	- Create treatment plan (reinforce/reduce/dredge)
+	- Select divergent channels based on pathway location
+- Example: Bi Syndrome in Spine
+	- Condition:
+		- Wind-damp-cold lodged in spine
+		- Location: T11 to L4
+		- Pain, stiffness, cold sensation
+	- Diagnosis:
+		- Bi syndrome
+	- Pathogen: wind-damp-cold
+	- Location: Bladder/Kidney divergent channel pathways
+	- Treatment Goal:
+		- Resolve and clear bi syndrome
+		- Move pathogen from spine
+		- Release from body
+	- Treatment Plan:
+	- Part 1 - Divergent Channels (Reduce):
+		- Right BL-40 (earth confluent)
+		- Right BL-10 (heaven confluent)
+		- Left BL-10 (heaven confluent)
+		- Left BL-40 (earth confluent)
+		- Du-20 (assists left-right movement)
+		- Du-16, Du-6 (on pathways, spine level)
+		- Hua Tuo Jia Ji at affected vertebrae (local pathway)
+	- Part 2 - Primary Channels (Support):
+		- SI-3, BL-65 (stream points - treat bi syndrome)
+		- BL-11 (influential point of bone)
+	- Part 3 - Modalities:
+		- Moxibustion (warm, expel cold, move stagnation)
+		- Tui na on local area (before needling)
+		- Gua sha (after needling - provides outlet)
+	- Part 4 - Promote Urination (Additional Release):
+		- BL-64, BL-28 (source and back shu - promote urination)
+		- Additional pathway for pathogen release
+	- Goal:
+		- Create energetic flow moving bi syndrome upward/outward
+		- Multiple outlets for release
+		- Comprehensive clearing
+#### METHOD 2: Supporting Internal Organs and Primary Channels
+- Divergent channels assist organ and primary channel treatments
+- Two scenarios:
+	- Scenario A - Organ Deficiency:
+	- Example: Spleen Qi Deficiency
+	- Goal: Reinforce Spleen
+	- Strategy:
+		- Select primary channel points (SP-3, SP-6, ST-36)
+		- Add Spleen/Stomach divergent channels
+		- Reinforce both systems
+	- How divergent channels help:
+		- Create momentum guiding qi TO Spleen
+		- Mobilize body's resources
+		- Enhance primary channel treatment
+		- Stronger reinforcement
+	- Treatment:
+		- ST/SP divergent channels (reinforce)
+		- Left ST-30, left BL-1, Du-20, right BL-1, right ST-30
+		- Pathway point
+			- Ren-12 (Stomach mu, on pathway)
+		- Primary channel points
+			- SP-3 (source), ST-36 (sea)
+	- Synergy:
+		- Divergent channels mobilize
+		- Primary channels direct to organ
+		- Ren-12 supports both
+		- Comprehensive reinforcement
+	- Scenario B - Organ Excess:
+	- Example: Stomach Fire
+		- Goal: Clear Stomach fire
+	- Strategy:
+		- Reduce Spleen/Stomach divergent channels
+			- Assists in releasing and clearing fire
+			- Support with primary channel reduction points
+		- How divergent channels help:
+			- Create momentum guiding fire AWAY from Stomach
+			- Establish upward/outward movement
+			- Enhance primary channel clearing function
+	- Treatment:
+		- ST/SP divergent channels (reduce)
+		- Reduce confluent points
+		- Primary channel points (reduce)
+		- ST-44, ST-45 (clear heat, fire point)
+		- ST-36 (regulate)
+	- Result:
+		- Divergent channels mobilize fire outward
+		- Primary points clear and regulate
+		- More effective than primary channels alone
+#### METHOD 3: Supporting Muscle Channels
+- Divergent channels enhance muscle channel treatments
+- Example: Back Pain - Para-spinal Muscles
+- Condition:
+	- Pain along para-spinal muscles
+	- Stiffness, tension
+	- Possible bi syndrome
+- Diagnosis:
+	- Bladder muscle channel affected
+	- Possible wind-damp-cold
+	- Muscle tension and spasm
+- Treatment Strategy:
+	- Part 1 - Divergent Channels:
+		- BL/KD divergent channels
+		- Create upward/outward movement
+		- Mobilize pathogen from deep to superficial
+	- Part 2 - Muscle Channels:
+		- Superficial needling along muscles
+		- Stimulate wei qi
+		- Relax muscles
+	- Part 3 - Release:
+		- Gua sha, cupping, or plum blossom
+		- Brings pathogen to surface
+		- Visible outlet (sha/redness)
+	- Part 4 - Warm (if cold present):
+		- Moxibustion
+		- Expels cold
+		- Warms channels
+- Why combine:
+	- Divergent channels: move from deep to superficial
+	- Muscle channels: release from superficial
+	- Modality: complete the release
+	- Comprehensive treatment of all layers
+
+#### METHOD 4: Supporting Connecting Channels
+- Classical application:
+- Connecting channels treat blood conditions and emotions
+- Emotions stored in blood
+- Divergent channels support by:
+	- Bringing emotional energy to surface
+	- Creating movement of stuck emotions
+	- Enhancing luo channel release function
+- Example: Repressed Liver Qi, Hun Imbalance
+- Condition:
+	- Years of repressed anger
+	- Liver qi stagnation
+	- Hun spirit blocked
+- Patient wants to release
+- Treatment Strategy:
+	- Part 1 - Luo Channel Treatment:
+		- Plum blossom right LV-5 (Liver luo point)
+		- Plum blossom left GB-37 (Gallbladder luo point)
+		- Creates outlet for emotional release
+		- Blood letting allows emotions (stored in blood) to exit
+	- Part 2 - Divergent Channel Treatment:
+		- LV/GB divergent channels (reduce)
+		- Brings emotional energy TO surface
+		- Guides toward luo points for release
+		- Mobilizes stuck emotional qi
+	- Part 3 - Synergy:
+		- Divergent channels: mobilize and guide
+		- Luo channels: provide outlet
+		- Plum blossom: gentle but effective release
+- Why this works:
+	- Emotions lodge deep (chronic pattern)
+	- Divergent channels access deep (yuan) layer
+	- Move emotions from deep to superficial
+	- Luo treatment releases from blood
+	- Complete emotional clearing
+
+#### METHOD 5: Supporting Eight Extraordinary Channels
+- Divergent channels assist extraordinary channel treatments
+- Example: Chronic Fatigue with Kidney Yang Deficiency
+- Condition:
+	- Exhaustion for years
+	- Kidney Yang deficiency
+	- Constitutional weakness
+- Treatment Plan:
+	- Part 1 - Du Channel Treatment:
+		- Du channel reinforces Kidneys (Yang)
+		- Tonifies Yang qi
+		- Strengthens constitution
+	- Part 2 - Divergent Channel Support:
+		- BL/KD divergent channels (reinforce)
+		- Help guide vital substances from Du channel TO Kidneys
+		- Enhance Du channel's ability to tonify Kidneys
+- Why combine:
+	- Du channel: constitutional Yang reinforcement
+	- Divergent channels: guide to organs
+	- Creates very effective treatment
+	- Synergy between channel systems
+- Treatment Points:
+	- Du channel points (reinforce)
+		- Du-4 (Ming Men), Du-20 (Bai Hui)
+		- SI-3/BL-62 (opening points)
+	- BL/KD divergent channels (reinforce)
+		- BL-40, BL-10
+		- BL-23, Du-4 (pathway points)
+	- Primary channel support
+		- KD-3 (source), KD-7 (tonify Kidney Yang)
+	- Result:
+		- Three channel systems working together
+		- Comprehensive constitutional treatment
+		- More effective than any single system
+
+### CASE STUDIES
+#### CASE 1: BACK PAIN
+- Patient: 54-year-old male
+- Complaint: Back pain ranging from T11 to L4
+- Diagnosis:
+	- Bi syndrome (wind-damp-cold)
+	- Western: arthritis
+- Treatment Plan
+- Goal: Resolve bi syndrome by reducing affected area
+- Channels involved:
+	- Bladder and Kidney divergent channels (flow along spine)
+	- Bladder muscle channels (para-spinal muscles)
+- Treatment Strategy (5 Parts)
+	- Part 1 - Release Bladder Muscle Channels:
+		- Tui na or massage on local area
+		- Relaxes muscles, prepares for needling
+	- Part 2 - Release BL/KD Divergent Channels:
+		- a. Right BL-40 → right BL-10 → left BL-10 → left BL-40
+		- b. Du-16, Du-6 (pathway points on spine)
+- 		- c. Hua Tuo Jia Ji at ashi locations (local pathway)
+		- d. SI-3, BL-65 (stream points - treat bi syndrome)
+		- e. BL-11 (influential point of bone)
+		- f. Apply moxibustion (warm, expel cold)
+		- g. BL-64, BL-28 (source/back shu - promote urination)
+	- All needled with REDUCING method
+	- Part 3 - Bi Syndrome Treatment:
+		- Stream points (d) treat bi and pain
+		- BL-11 (e) influential point of bone
+		- Points selected for condition type
+	- Part 4 - Moxibustion:
+		- On local areas of pain
+		- Warms and expels cold
+		- One of best modalities for pain
+	- Part 5 - Promote Urination:
+		- Additional pathway for releasing wind-damp-cold
+		- Through urination
+	- Rationale
+		- Reducing BL/KD divergent channels:
+			- Creates upward/outward energetic flow
+			- Moves bi syndrome from spine
+			- Guides toward release
+	- Multiple outlets:
+		- Upward along spine (to neck/head area)
+		- Outward through moxibustion (warming/moving)
+		- Downward through urination
+		- Comprehensive pathogen clearing
+	- Layer treatment:
+		- Muscle channels (wei - superficial)
+		- Divergent channels (wei to yuan - all layers)
+		- Bones (yuan - deep)
+		- Complete treatment
 
