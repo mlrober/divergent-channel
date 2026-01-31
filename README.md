@@ -3183,3 +3183,346 @@ These principles determine when divergent channels are appropriate:
 		- Bones (yuan - deep)
 		- Complete treatment
 
+### CASE 2: ANGER AND FRUSTRATION
+- Patient: 32-year-old female
+- Complaint: Anger and frustration for 10 years
+- Wants to address this condition
+- Currently in therapy with psychologist
+- Diagnosis:
+	- Liver qi stagnation
+	- Repressed anger
+	- Hun spirit repressed
+- Treatment Plan
+- Goals:
+	- Release anger and frustration
+	- Soothe Liver qi stagnation
+	- Free hun spirit
+- Treatment Strategy (3 Parts)
+	- Part 1 - Luo Channel Release:
+		- Plum blossom right LV-5 (Liver luo point)
+		- Plum blossom left GB-37 (Gallbladder luo point)
+	- Classical use:
+		- These points bled to release emotional energy stored in blood
+		- Plum blossom: gentle but effective alternative
+	- Part 2 - Divergent Channel Mobilization:
+		- Order of insertion:
+			- Ren-2 (earth confluent)
+			- Left GB-1 (heaven confluent)
+			- Du-20 (guide across, assists upward movement)
+			- Right GB-1 (heaven confluent)
+			- Re-stimulate Ren-2 (complete circuit)
+			- LV-14 (pathway point, also Liver mu point)
+		- All needled with REDUCING method
+	- Part 3 - Additional Release Support:
+		- SJ-6 (supports release through three jiao, guides outward)
+		- GB-41 (stream/horary point - wood point on wood channel, opening point of Dai channel)
+	- Both major Shao Yang points:
+	- Create strong energetic force to release
+		- GB-41 especially powerful for releasing
+- Rationale
+- Why this sequence:
+1. Luo treatment first:
+	- Creates outlet
+	- Prepares pathway for emotional release
+2. Divergent channels second:
+	- Mobilizes emotional energy from deep
+	- Brings to surface
+	- Guides toward luo points
+3. Supporting points last:
+	- SJ-6: guides through San Jiao system
+	- GB-41: powerful Shao Yang release point
+- Enhance overall releasing function
+- Combined effect:
+	- Emotions mobilized (divergent)
+	- Pathway created (luo)
+	- Strong release force (supporting points)
+	- Comprehensive emotional clearing
+- Lifestyle Recommendation
+- Walking daily:
+	- Taxes tendons
+	- Tendons governed by Liver/Gallbladder
+	- Natural, gentle way to reduce Liver/GB imbalances
+	- Helps release anger, frustration, repressed hun
+	- Movement prevents re-stagnation
+
+### CASE 3: CHRONIC FATIGUE
+- Patient: 46-year-old male
+- Complaints: 
+	- Chronic fatigue
+	- Gas and bloating after meals
+- Diagnosis:
+	- Spleen and Stomach qi deficiency
+- Treatment Plan
+- Goal: Reinforce Spleen and Stomach
+- Treatment Strategy (2 Parts)
+	- Part 1 - Divergent Channels (Reinforce):
+		- Exact order of insertion:
+		- Left ST-30 (earth confluent)
+		- Left ST-1 (heaven confluent)
+		- - Du-20 (assists moving treatment from left to right, also reinforces Spleen - strengthens ascending function)
+		- Right ST-1 (heaven confluent)
+		- Right ST-30 (earth confluent)
+		- Ren-12 (on ST divergent pathway, Stomach mu point, reinforces both ST/SP)
+	- All needled with REINFORCING method
+- Part 2 - Primary Channels (Reinforce):
+	- SP-3 (source point)
+	- ST-36 (sea point)
+	- Additional point qualities:
+		- ST-36: lower he-sea, earth point, horary point
+		- ST-30 + ST-36: sea of grain points (powerfully reinforce ST/SP)
+- All needled with REINFORCING method
+- Rationale
+	- Confluent point selection:
+		- ST-30 and ST-1 are standard confluent points
+		- Some practitioners use BL-1 or LI-20 instead of ST-1
+		- Author uses ST-1 for this case
+- All are valid choices
+	- Du-20 function:
+		- Guides treatment from one side to other
+		- Increases energetic influence on divergent channels
+		- Also reinforces Spleen (assists gu qi ascending to Lungs)
+- Multi-functional point
+	- Ren-12 importance:
+		- On Stomach divergent pathway
+		- Stomach mu (front collecting) point
+		- Reinforces both Stomach AND Spleen
+		- Essential for this diagnosis
+- Primary channel support:
+	- SP-3: source point (powerful tonification)
+	- ST-36: sea point + earth point + horary point + lower he-sea
+	- Together with ST-30: sea of grain points (reinforce digestion)
+- Synergy:
+	- Divergent channels: mobilize body's resources
+	- Guide qi TO Spleen/Stomach
+	- Primary points: receive and direct to organs
+	- Combined effect much stronger
+
+### CASE 4: INSOMNIA
+- Patient: 58-year-old female
+- Complaint:
+	- Insomnia for 20 years
+	- Difficulty falling asleep
+	- Doesn't fall asleep until 1 am or later
+	- Tried natural remedies with little success
+- Diagnosis:
+	- Heart fire
+- Treatment Plan
+- Goal: Clear Heart fire
+- Treatment Strategy (2 Parts)
+	- Part 1 - Divergent Channels (Reduce):
+		- Order of insertion:
+		- Right GB-22 (earth confluent)
+		- Right BL-1 (heaven confluent)
+		- Left BL-1 (heaven confluent)
+		- Left GB-22 (earth confluent)
+		- Ren-17 (on pathway, also Heart mu point)
+		- ST-12 (on pathway)
+		- Needle Ren-17 with REDUCING method
+		- Gua sha ST-12:
+			- Allows heat to release from Heart and Small Intestine
+		- Creates physical outlet
+		- Brings heat to surface
+	- Part 2 - Luo Channel Release:
+		- Plum blossom SI-7 bilaterally (Small Intestine luo point)
+		- Rationale for SI-7:
+			- Luo point of Small Intestine
+			- Small Intestine is Yin-Yang pair with Heart
+			- Luo points can release heat from channels
+			- Creates outlet for Heart fire
+- Rationale
+	- Why reduce Heart fire for insomnia:
+		- Heart fire rises and disturbs shen
+		- Shen cannot settle at night
+		- Can't fall asleep
+- Divergent channel treatment:
+	- Clears heat from Heart and Small Intestine channels and organs
+	- GB-22/BL-1: confluent points activate channels
+	- Ren-17: Heart mu point on pathway (reduces Heart directly)
+	- ST-12: pathway point
+	- Gua sha ST-12:
+- Physical method to draw heat out
+	- Visible release (redness)
+	- Completes release process
+- Plum blossom SI-7:
+	- Luo point: connects to blood where heat lodges
+	- Gentle bloodletting effect
+	- Provides additional outlet
+	- Small Intestine fire affects Heart (paired channels)
+- Combined effect:
+	- Heat mobilized and guided outward (divergent)
+	- Multiple outlets provided (gua sha, plum blossom)
+	- Comprehensive heat clearing
+
+### CASE 5: DIFFICULTY TAKING RESPONSIBILITY
+- Patient: 56-year-old woman
+- Complaint:
+	- Difficulty taking responsibility for actions in relationships
+	- Continually blames others for challenges in life
+	- Wants to change this pattern
+- Diagnosis:
+	- Pericardium deficiency
+- Treatment Plan
+- Goals:
+	- Reinforce Pericardium and San Jiao divergent channels
+	- Reinforce zhi (Kidneys - willpower)
+- Theory:
+	- Zhi and Kidneys contain will
+	- Reinforcing Kidneys/zhi/will → ability to take responsibility
+	 - Pericardium (Heart protector) + willpower → integrity in relationships
+- Treatment Strategy (2 Main Parts)
+	- Part 1 - Divergent Channels (Reinforce):
+		- Confluent points:
+			- Ren-12 (earth confluent)
+			- SJ-16 (heaven confluent)
+		- Additional pathway point:
+			- PC-7 (source point of Pericardium)
+	- All needled with REINFORCING method
+	- Function:
+		- Stimulates PC/SJ divergent channels
+		- Reinforces Pericardium organ
+		- PC-7: source point strengthens Pericardium
+		- Increases ability to respond with integrity
+	- Part 2 - Kidney/Zhi Reinforcement:
+		- KD-3 (Kidney source point)
+		- Ren-6 (sea of qi, reinforces Kidneys and essence)
+	- All needled with REINFORCING method
+	- Function:
+		- Reinforces Kidneys and essence
+		- Strengthens zhi (willpower)
+		- Supports ability to take responsibility
+	- Additional Option - Yin Wei Channel
+		- For chronic conditions:
+			- This is chronic behavioral pattern
+			- Eight extraordinary channels can help release conditioning
+			- Yin Wei channel could support treatment
+			- Yin Wei points:
+				- KD-9, SP-16, LV-14
+	- Treatment order if including:
+		- Yin Wei channel (right side - reduce to release pattern)
+		- PC/SJ divergent channels (reinforce Pericardium)
+		- Primary channels (KD-3, Ren-6, PC-7)
+	- Rationale:
+		- Release old pattern first (Yin Wei)
+		- Build new capacity second (divergent + primary)
+- Rationale
+- Why Pericardium:
+	- Heart protector
+		- Relates to how we interact with world
+		- Shields/protects our true heart
+		- Taking responsibility requires healthy Pericardium
+- Why Kidneys/Zhi:
+	- Zhi = willpower
+	- Ability to follow through
+	- Courage to face oneself
+	- Will to change
+- Pericardium-Kidney relationship:
+	- PC can be viewed as part of Shao Yin (like Heart)
+	- Heart-Kidney = jing-shen connection
+	- PC-Kidney = similar energetic relationship
+	- Reinforcing both creates comprehensive treatment
+- Long-term approach:
+	- This is constitutional/behavioral pattern
+	- May require multiple treatments
+	- Support with therapy (already doing)
+	- Cultivation practices could help (meditation, Qi Gong)
+
+### CASE 6: GRIEF AND SADNESS
+- Patient: 61-year-old female
+- Complaint:
+	- Severe sadness, depression, grief
+	- From loss of husband 5 years ago
+	- No history of unusual emotional conditions before this
+	- Difficult time expressing feelings to others
+	- Has internalized/suppressed emotions
+	- In therapy for 6 months, feels it's helped
+		- Wants to be able to express emotions
+		- Wants to begin moving forward in life
+- Diagnosis:
+	- Sadness, depression, grief from loss
+	- Po disharmony (Lung shen)
+	- Suppressed/internalized emotions
+- Treatment Plan
+- Goal:
+	- Release emotions from Lung and Large Intestine channel system
+	- Support emotional expression
+	- Free po spirit
+- Systems to treat:
+	- Connecting channels (emotional release)
+	- Divergent channels (mobilization)
+	- Primary channels (organ support)
+
+- Treatment Strategy (3 Parts)
+- Treatment must be performed in this exact order:
+	- Part 1 - Luo Channel Release (Outlet Creation):
+		- Points:
+			- Plum blossom right LU-7 (Lung luo point)
+			- Plum blossom left LI-6 (Large Intestine luo point)
+		- Why this polarity:
+			- Lung = Yin channel → corresponds to right side
+			- Large Intestine = Yang channel → corresponds to left side
+	- Treating matched polarity increases effectiveness
+	- Function:
+		- Luo points influence blood/emotions
+		- Plum blossom creates gentle outlet
+		- Allows imbalanced emotional energy to release
+	- Part 2 - Divergent Channel Mobilization (Reduce/Clear):
+		- Confluent points:
+			- ST-12 (earth confluent for LU/LI)
+			- LI-18 (heaven confluent)
+		- Pathway points:
+			- LU-1
+			- LI-15
+			- GB-21
+		- All needled with REDUCING method
+	- Function:
+		- Stimulates divergent channels
+		- Moves emotional energy upward/outward
+		- Guides toward release (to luo points treated in Part 1)
+		- LU-1, LI-15, GB-21: pathway points assist release from Lungs and Large Intestine
+	- Part 3 - Primary Channel Completion:
+		- Points:
+			- LU-8 (channel ditch, horary point - metal point on metal channel)
+			- LU-3 (window of sky point)
+		- Both needled with REDUCING method
+	- Function:
+		- LU-8 (Channel Ditch):
+			- Horary point (metal on metal = powerful)
+			- "Ditch" imagery: draws stagnation from channel
+		- Assists releasing sadness/depression/grief from Lung channel
+		- LU-3 (Window of Sky):
+			- Opens communication heaven-earth
+			- Assists releasing po emotional energy from body
+			- Facilitates expression (opening "window")
+	- Rationale
+		- Three-part sequential treatment:
+			- Why this order:
+			- 1. Create outlet first (luo channels):
+			- Emotions must have somewhere to go
+			- Plum blossom provides gentle physical release
+			- Prepares pathway
+	2. Mobilize second (divergent channels):
+		- Emotions suppressed/internalized (deep)
+		- Divergent channels access deep (yuan) layer
+		- Move emotions from deep to superficial
+		- Guide toward outlets (luo points)
+	3. Complete third (primary channels):
+		- LU-8: draws from "ditch" (stagnant areas)
+		- LU-3: opens "window" (expression pathway)
+		- Ensures complete release
+- Why LU/LI focus:
+	- Grief/sadness = Lung emotions
+	- Po = Lung shen
+	- Internalization = po issue (isolation/polarity)
+	- Large Intestine crosses midline (polarity channel)
+	- Both must be treated for complete release
+	- Supporting the grief process:
+		- This is natural grieving
+		- Needs to be expressed (not suppressed)
+		- Treatment facilitates healthy expression
+		- Not "removing" grief but allowing flow
+		- Supports moving through process
+- Long-term support:
+	- Continue therapy (already doing)
+	- Breathwork/Qi Gong (regulate Lung/po)
+	- May need multiple treatments
+	- Gradual emotional release safest
