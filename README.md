@@ -3526,3 +3526,850 @@ These principles determine when divergent channels are appropriate:
 	- Breathwork/Qi Gong (regulate Lung/po)
 	- May need multiple treatments
 	- Gradual emotional release safest
+- Essential Element: Clarity
+- Clarity of:
+	- Area - where is the condition?
+	- Points - which points along pathways?
+	- Strategic selection - how to choose points?
+	- Strategic Point Selection
+- Both art and science:
+- Science:
+	- Understand pathways
+	- Know point functions
+	- Apply classical theory
+- Art:
+	- Intuition about point selection
+	- Sense of how many points needed
+	- Feel for treatment flow
+- Develops through:
+	- Study
+	- Practice
+	- Experience
+	- Reflection on results
+
+##### Quick Reference: Main Points Along Divergent Channels
+- Table 10.1 in the book provides:
+	- Confluent points for each channel pair
+	- Main pathway points
+	- Quick reference for treatment planning
+- Use this table when:
+	- Designing treatments
+	- Selecting pathway points
+	- Ensuring comprehensive channel coverage
+- FINAL THOUGHTS FROM CHAPTER 10
+	- The Integration
+- Divergent channels are flexible and comprehensive because they:
+	- Treat directly - conditions in their own pathways
+	- Support all channels - muscle, luo, primary, extraordinary
+	- Access all layers - wei, ying, yuan
+	- Mobilize resources - gather body's healing capacity
+	- Create synergy - enhance other treatments
+- The Practice
+To apply divergent channels effectively:
+1. Study pathways thoroughly
+	- Know where they go
+	- Understand connections
+	- Memorize confluent points
+2. Treat entire pathways
+	- Not just 1-2 points
+	- Multiple points along route
+	- Comprehensive stimulation
+3. Apply proper technique
+	- Reinforce when reinforcing
+	- Reduce when reducing
+	- Clear intention and method
+4. Plan treatment order
+	- Exact sequence matters
+	- Creates healing synergy
+	- Sends clear message to body
+5. Combine modalities
+	- Moxibustion, gua sha, cupping
+	- Enhances effectiveness
+	- Provides additional outlets
+
+- The Author's Experience
+	- "I have found the divergent channels to be one of the most useful and effective channel systems in clinical practice."
+- Success comes from:
+	- Understanding theory
+	- Knowing pathways
+- Strategic point selection
+	- Proper technique
+	- Clinical experience
+
+## Five-Shen Nei Dan Inner Meditation
+- INTRODUCTION TO FIVE SHEN NEI DAN
+	- A Beautiful Example of Applied Five Phases
+	- This cultivation demonstrates:
+		- Applying five-phase information into valuable practice
+		- Wonderful influence on your life
+		- Integration of theory into cultivation
+- The Practice Works on Multiple Levels
+- Level 1 - Turning Inward:
+	- Develops conscious intention
+	- Ability to turn focus inward
+	- Function of the yi (Spleen/intellect)
+- Level 2 - Moving Life Force:
+	- Move life force inward
+	- Move throughout body
+	- Essential aspect of practice
+- Level 3 - Balancing:
+	- Balance is key to health, vitality, longevity
+	- This practice balances energies of body
+	- Transforms life force from imbalance to balance
+
+#### Five Phases Correspondences Used
+#### Table 14.1: Five Phases Correspondences
+| Shen | Organ | Sensory Organ | Sense | Temperature | Emotion | Color/Element |
+| Shen | Heart, Small Intestine | Tongue | Taste | Hot | Hastiness, impatience, hatred, arroganceRed, Fire |
+| Zhi | Kidneys, Bladder | Ears | Hearing | Cold, wetFear | Blue-green, black, blue, Water |
+| Hun | Liver, Gallbladder | Eyes | SightWarm, moist | Anger, irritability, frustration | Green, Wood | 
+| Po | Lungs, Large Intestine | Nose | Smell | Cool, dry | Sadness, depression, loneliness | White, Metal |
+| Yi | Spleen, Stomach | Mouth | Eating | Mild | Worry, pensiveness | Yellow, Earth |
+
+#### PREPARATION FOR FIVE SHEN NEI DAN
+- Essential Prerequisites
+- Before beginning:
+	- Inner smile meditation (creates relaxed, smiling energy)
+	- Small heavenly orbit (opens Ren and Du channels)
+	- Practice both for a few minutes
+	- Until you feel qi flowing in body
+- Only when qi is flowing:
+	- Can begin Five Shen Nei Dan
+	- Foundation must be established
+	- Don't skip this preparation
+- Sitting Posture
+	- Proper posture:
+		- Sit in chair OR on floor
+		- Back straight
+		- Chin tucked in gently
+		- This allows qi to flow up back
+		- Qi can reach brain (Du channel)
+- Initial focus:
+	- Turn attention inward
+	- To center in lower dan tian
+	- Area behind and below navel
+	- Not a fixed point
+	- Wherever you feel qi or sensation = center
+- Allow awareness to strengthen:
+	- Place attention in center
+	- Feel the presence there
+	- Practice until you feel the qi
+
+#### STAGE 1: SMILING INTO THE FIVE ORGANS
+- Understanding Physical Locations
+- First step:
+	- Have clear understanding of five organs' physical locations
+	- May need to refer to anatomy book
+	- Knowing where organs are is essential
+- The Practice - Connecting Qi and Organ
+- Process:
+	- Place attention in organ
+	- Connecting life force (qi) with organ
+	- Qi and organ integrate
+	- Organ becomes energized
+	- Beginning of vitality and rejuvenation
+- Critical element:
+	- "Don't just place your attention in the organ—smile into the organ."
+- Smiling is essential:
+	- Creates transformative life force
+	- Can change emotional condition
+	- Fundamental to this practice
+
+##### The Sequence: Kidneys → Heart → Liver → Lungs → Spleen
+1. Kidneys:
+	- Place attention in Kidneys
+	- Smile into Kidneys
+	- Fill with smiling qi
+	- Continue until you feel Kidneys filled with qi
+2. Heart:
+	- Gently move attention to Heart
+	- Concentrate with relaxed body and mind
+	- Smile into Heart
+	- Focus in and around entire Heart
+	- Until you feel Heart filled with qi
+3. Liver:
+	- When Heart full of qi, move to Liver
+	- Focus in and around Liver
+	- Smile into Liver
+	- Fill with smiling energy
+	- Until Liver full of qi
+4. Lungs:
+	- When Liver full, move to Lungs
+	- Smile into Lungs
+	- Until Lungs filled with qi
+5. Spleen:
+	- Move attention to Spleen
+	- Smile into Spleen
+	- Fill with energy
+- All Five Organs Awareness
+- After completing each organ:
+	- Become aware of ALL five organs
+	- Focus attention on all organs simultaneously
+	- Feel energy of each
+	- Spend up to 10 minutes in this organ-awareness meditation
+- This meditation:
+	- Begins Fusion of Five Phases nei dan
+	- Foundation for rest of practice
+- Duration and Completion
+- Practice this stage:
+	- Up to a few months
+	- Until you feel smiling energy in all five organs
+	- Being able to feel qi in organs integrates life force and organs
+	- Integration of qi and body
+	- Beginning step in self-awareness and self-realization
+- Finish this stage:
+	- Gently move attention and qi to lower dan tian
+	- Collect the energy
+	- Store in center
+
+##### STAGE 2: THE FIVE PHASES (FIVE ELEMENTS)
+- Connecting Organ with Element
+- Similar to previous stage:
+	- Smiling into organ connects organ and qi
+	- Now connecting organ and its element
+	- Fusion of body (internal organ) and qi
+	- Revitalizes life force of organs and organ itself
+	- Continue from Stage 1 (smiling into organs).
+- The Practice
+1. Kidneys and Water:
+	- Begin in Kidneys
+	- Smile into Kidneys until you feel qi
+	- When you feel Kidney qi:
+		- Visualize and feel energy of water
+		- Ocean, river, lake, body of water you're familiar with
+		- Feel the water
+		- Connect yi to the water
+		- Bring water awareness to Kidneys
+		- Feel water in Kidneys
+		- Smile into Kidneys and feel water qi
+		- Continue until you feel water qi
+2. Heart and Fire:
+	- When you feel water qi, move attention to Heart
+	- Smile into Heart
+	- When you feel smiling qi in Heart:
+		- Feel warm fire energy
+		- Good source: the sun
+		- Become aware of nourishing heat and fire of sun
+		- Allow warming fire to grow in Heart
+		- Smile into fire energy in Heart
+	- Continue until you feel fire energy
+3. Liver and Wood:
+	- When you feel fire energy, move to Liver
+	- Smile into Liver
+	- When you feel smiling energy in Liver:
+		- Visualize trees in forest or location you've experienced
+		- Feel the trees (wood element)
+		- Fill Liver with this wood energy
+		- Spend time until you feel wood energy
+	- Continue until you feel wood energy in Liver
+4. Lungs and Metal:
+	- When you feel wood energy, move to Lungs
+	- Smile into Lungs until you feel smiling energy
+	- The Lungs are metal element:
+		- Visualize natural metal in environment
+		- Gold is type of metal used in feng shui
+		- Gold needles used in acupuncture
+		- Can visualize gold
+		- Allow feeling of metal to manifest
+		- Smile and guide metal feeling into Lungs
+		- Fill Lungs with metal energy
+		- Allow energy to grow
+		- Mix smiling energy and metal energy
+		- Sit with metal feeling in Lungs
+5. Spleen and Earth:
+	- When you feel metal energy fill Lungs, move to Spleen
+	- Smile into Spleen
+	- Visualize earth qi:
+		- Place you've visited or lived
+		- Mountains you've experienced
+		- Ideal to practice in natural environments with actual elements
+		- Feel earth energy in Spleen
+		- Allow it to fill Spleen
+		- Mix earth energy and smiling energy
+	- Continue for a few minutes or until you strongly feel earth energy
+- Duration and Completion
+- Practice this stage:
+	- Few weeks or months
+	- Until you feel elements in each organ
+	- Options for completion:
+		- Continue to next stage
+		- OR finish by guiding energy and attention to center of lower dan tian
+		- Collect the energy
+##### STAGE 3: THE COLORS OF THE ORGANS
+- Five Organs House Five Shen
+- Each organ has a color:
+	- When organ and life force balanced
+	- Color of organ is vibrant
+- In this part:
+	- Visualize colors
+	- Correspond to five phases
+	- Based on traditional information
+- The Yellow Center - Middle Jiao
+- Begin with middle center:
+	- Solar plexus area
+	- Spleen and Stomach
+	- Filled with yellow color
+	- Visualize vibrant yellow
+	- Earth phase = transformer
+- Middle center as cauldron:
+	- All organ energies collected here
+	- Transformed here
+	- Location where transformation happens
+- The Order
+- Follows pattern from Stage 1:
+	- Kidneys → Heart → Liver → Lungs
+	- (Spleen already established as yellow center)
+- The Practice
+1. Establish Yellow Center:
+	- Smile into middle center (solar plexus)
+	- See glowing yellow color
+	- Concentrate and focus yi in center of middle jiao
+	- Settle intention in center
+	- Until you feel vibrant force
+2. Kidneys - Blue-Green:
+	- Move attention to Kidneys
+	- Color: blue-green (some traditions: black or blue)
+	- Smile into Kidneys
+	- Visualize vibrant blue-green color materializing
+	- Spend time until you see and feel vibrant color and qi
+3. Heart - Red:
+	- Move attention to Heart
+	- Color: red
+	- Smile into Heart
+	- Visualize vibrant red color materializing
+	- Until you see and feel vibrant color and qi
+4. Liver - Green:
+	- Move attention to Liver
+	- Color: green
+	- Smile into Liver
+	- Visualize vibrant green color materializing
+	- Until you see and feel vibrant color and qi
+5. Lungs - White:
+	- Move attention to Lungs
+	- Color: white
+	- Smile into Lungs
+	- Visualize vibrant white color materializing
+	- Until you see and feel vibrant color and qi
+- All Organs Vibrating
+- After completing colors:
+	- Be aware of all organs vibrating with their colors and qi
+	- Spend a few minutes being with all five organ centers
+	- Feel their energy
+- Purpose of This Stage
+- This stage:
+	- Grows favorable energies and colors of organs
+	- Builds life force in organ centers
+	- Creates strength and integrity
+	- Prepares for transformation
+- Preparation for what:
+	- Transforming conditioning
+	- Transforming imprints
+	- Transforming emotional imbalances
+- The approach:
+	- "We can look at this process as greeting our psycho-emotional difficulties with a smiling, loving life force. This smiling, loving energy allows for a more effective transformation."
+##### STAGE 4: THE FIVE PHASES SENSES
+- Connecting Organs with Sensory Organs
+- Each organ opens to a sensory organ:
+	- Kidneys → Ears
+	- Heart → Tongue
+	- Liver → Eyes
+	- Lungs → Nose
+	- Spleen → Mouth
+- The Practice
+1. Kidneys and Ears:
+	- Become aware of Kidneys
+	- Focus intention in Kidneys
+	- When you feel Kidney qi:
+		- Move attention to ears
+		- Focus on ears
+		- Feel life force in ears
+		- Ears connected to Kidneys
+		- With practice, feel connection
+	- Spend a few minutes in awareness of Kidneys and ears
+- This is fusion of water correspondences: Kidneys, ears, zhi spirit
+2. Heart and Tongue:
+	- Move attention to Heart
+	- Focus intention in Heart
+	- When you feel Heart qi:
+		- Move attention to tongue
+		- Focus on tongue
+		- Feel life force in tongue
+		- Tongue connected to Heart
+		- With practice, feel connection
+		- Spend a few minutes in awareness of Heart and tongue
+- Fusion of fire correspondences: Heart, tongue, shen spirit
+3. Liver and Eyes:
+	- Move attention to Liver
+	- Focus intention in Liver
+	- When you feel Liver qi:
+		- Move attention to eyes
+		- Focus on eyes
+		- Feel life force in eyes
+		- Eyes connected to Liver
+		- With practice, feel connection
+		- Spend a few minutes in awareness of Liver and eyes
+- Fusion of wood correspondences: Liver, eyes, hun spirit
+4. Lungs and Nose:
+	- Move attention to Lungs
+	- Focus intention in Lungs
+	- When you feel Lung qi:
+		- Move attention to nose
+		- Focus on nose
+		- Feel life force in nose
+		- Nose connected to Lungs
+		- With practice, feel connection
+		- Spend a few minutes in awareness of Lungs and nose
+- Fusion of metal correspondences: Lungs, nose, po spirit
+5. Spleen and Mouth:
+	- Move attention to Spleen
+	- Focus intention in Spleen
+	- When you feel Spleen qi:
+		- Move attention to mouth
+		- Focus on mouth
+		- Feel life force in mouth
+		- Mouth connected to Spleen
+		- With practice, feel connection
+		- Spend a few minutes in awareness of Spleen and mouth
+- Fusion of earth correspondences: Spleen, mouth, yi spirit
+- Notice: Yi involved in each step of this nei dan. Condition of yi is critical in cultivation.
+- All Five Organs and Sensory Pairings
+- When finished:
+	- Become aware of all five organs and their sensory pairings
+	- Feel their qi
+	- This practice is foundation for rest of nei dan
+##### STAGE 5: THE FIVE PHASES TEMPERATURES
+- Temperature Susceptibilities
+- Each five organ susceptible to specific temperatures:
+	- Imbalances have unfavorable influence on organs and correspondences
+- The Practice
+1. Kidneys - Cold:
+	- Smile into Kidneys
+	- Temperature: cold
+	- Feel any cold in Kidneys or cold in body
+	- Allow coldness to manifest
+	- Spend time until you feel cold
+2. Heart - Hot:
+	- Move attention to Heart
+	- Temperature: hot
+	- Feel heat in Heart or heat in body
+	- Allow heat to manifest
+	- Spend time until you feel heat
+3. Fusion of Kidneys and Heart (Water and Fire):
+	- Simultaneously bring cold of Kidneys and heat of Heart together
+	- With intention, move cold and heat from organs to yellow sphere in center of middle jiao
+	- Yellow sphere = earth phase = space for transforming
+	- Transform temperatures to balanced, warm temperature
+- The process:
+	- Draw heat from Heart down into top of yellow sphere
+	- Draw cold from Kidneys up into bottom of yellow sphere
+	- Simultaneously spiral energies on outer portion of yellow sphere
+	- Move them to center
+	- When close to middle, mingle temperatures
+	- Creating warm temperature
+	- Focus attention on center, making small circles
+	- Collecting qi into small, condensed formation
+	- This is called pearl, crystal, or qi ball
+- The pearl:
+	- Refined essence of organs and body
+	- Will be formed repeatedly throughout cultivation
+4. Liver - Warm:
+	- Smile into Liver
+	- Temperature: warm
+	- Feel warmth in Liver and body
+	- (Common to feel heat if Liver imbalanced - if so, continue same way)
+	- Allow warmth to manifest
+	- Until you feel warmth
+5. Lungs - Cool:
+	- Smile into Lungs
+	- Temperature: cool
+	- Feel coolness in Lungs and body
+	- Allow coolness to manifest
+	- Until you feel coolness
+6. Fusion of Liver and Lungs (Wood and Metal):
+	- Simultaneously bring warmth of Liver and coolness of Lungs together
+	- With intention, move to yellow sphere in middle jiao
+	- Yellow sphere = earth phase = transforms to warm, balanced temperature
+- The process:
+	- Guide temperatures (qi) into yellow sphere
+	- Simultaneously spiral energies on outer portion
+	- Move to center
+	- When close to middle, mingle temperatures
+	- Creating nice warm temperature
+	- Focus on center, small circles
+	- Collecting into small, condensed pearl formation
+7. Spleen - Mild:
+	- Feel mild temperature in Spleen
+	- Allow to manifest in Spleen and throughout body
+	- After feeling mild temperature:
+		- Gently guide into yellow sphere in middle jiao
+8. Final Fusion of All Temperatures:
+	- Mix ALL temperatures in yellow sphere
+	- Mix by spiraling with intention
+	- Spiral 18 times one way, 18 times other way
+	- Can spiral in patterns of 9
+	- Counter-clockwise, then clockwise
+	- Spiral energy (temperatures) into small pearl shape in center
+	- Smile into pearl for a few minutes
+##### STAGE 6: THE EMOTIONS
+- Introduction
+- Su Wen and Ling Shu:
+	- Present emotions and virtues
+	- Clearly show body and emotions inseparable
+	- Each influences other
+- Five Shen Nei Dan:
+- Profound practice to transform emotions
+- Chinese and Taoist medicine: deep understanding of emotional influences
+	- This part focuses on emotions.
+- Part 1: The Kidneys - Fear
+- The practice:
+	- Become aware of Kidneys
+	- Focus intention in Kidneys
+	- When you feel Kidney qi:
+		- Allow any fear to manifest
+		- Repressed, suppressed, or existing fear
+		- Focus on this fear
+		- Emotions are energy
+		- Seek to transform to original nature
+- When you feel fear:
+	- Move into blue-green sphere at lower portion of lower dan tian
+	- Location: Ren 1, Hui Yin (Meeting of Yin) - perineum
+	- (See Figure 14.1 - collection points)
+- Five-phase theory:
+	- Fire is Yang, Water is Yin
+	- They are Shao Yin pairs
+	- Fire correspondences will assist in transforming fear
+	- Next part occurs in Heart.
+- Part 2: The Heart - Hastiness, Arrogance, Impatience, Hatred
+- The practice:
+	- Gently move attention to Heart
+	- When you feel Heart qi:
+		- Allow hastiness, arrogance, impatience, hatred to manifest
+	- Deep burial of emotions:
+	- When we bury emotions deep inside
+	- They influence deep parts of being
+	- Chinese medicine: influence yuan level
+	- This is jing (essence) level = constitution
+- To change essence level:
+	- Must allow energy (emotion) to come to surface
+	- Transform to neutral qi
+	- When you feel these emotions:
+		- Move into red sphere in Heart center area
+		- Location: Ren 17, Tan Zhong
+- Part 3: Fusion of Kidneys and Heart (Zhi and Shen)
+- The process:
+	- Simultaneously bring emotional energy of Kidneys and Heart together
+	- With intention, move fear and hastiness/arrogance/impatience/hatred together
+	- Into yellow sphere in middle center
+	- Similar to temperature fusion:
+		- Guide Heart emotional energy down into top of yellow sphere
+		- Guide Kidney emotional energy up to bottom of yellow sphere
+		- Simultaneously spiral emotional energies on outer portion of yellow sphere
+		- Moving to center (outer to inner)
+	- As you spiral toward center, energies begin to mingle
+	- When close to middle, focus on combining energies together
+	- Yellow sphere of transforming earth phase allows emotional energy to transform
+	- Transform to natural, balanced life force
+	- Finish by collecting qi into small, condensed pearl formation
+	- Smile to this pearl for a few minutes
+- Part 4: The Liver - Anger, Irritability, Frustration
+- The practice:
+	- Bring attention to Liver
+	- When you feel Liver qi:
+		- Allow anger, irritability, frustration to manifest
+		- Be aware of these emotions
+		- When you feel emotional energy in Liver:
+			- Gently guide into green sphere at Liver collection area
+		- Location of green sphere:
+			- Below Liver at right side of body
+		- On nipple line, at level of navel
+		- Draw line from navel laterally
+		- Draw line down from nipple
+		- Intersection = green sphere location
+		- Acupuncture point: Spleen 15, Daheng (Great Horizontal)
+	- Spiral emotional energy in green sphere to collect there
+- Part 5: The Lungs - Sadness, Depression, Grief, Loneliness
+- The practice:
+	- Bring attention to Lungs
+	- When you feel Lung qi:
+		- Allow sadness, depression, grief, loneliness to manifest
+		- Be aware of these emotions
+	- When you feel Lung emotional energy:
+		- Gently guide into white sphere at Lung collection area
+	- Location of white sphere:
+		- Left side of body
+		- On nipple line, at level of navel
+		- Draw line from navel laterally
+		- Draw line down from nipple
+		- Intersection = white sphere location
+		- Acupuncture point: Spleen 15, Daheng (Great Horizontal)
+	- Spiral emotional energy in white sphere to collect there
+- Part 6: Fusion of Liver and Lungs (Hun and Po)
+- The process:
+	- Simultaneously bring emotional energy of Liver and Lungs together
+	- With intention, move into yellow sphere in middle jiao
+	- Similar to previous fusions:
+		- Guide Liver and Lung emotional energy into yellow sphere
+		- Simultaneously spiral on outer portion
+		- Moving to center (outer to inner)
+		- As spiral toward center, energies mingle
+		- When close to middle, focus on combining
+		- Yellow sphere transforms emotional energy to natural, balanced life force
+			- Transformed energy of Kidneys and Heart already in yellow sphere
+			- Transformed energy of Liver and Lungs now mixed with these
+			- Synergy as more energies mixed together
+	- Finish by collecting into small, condensed pearl formation
+- Smile to pearl for a few minutes
+- Part 7: The Spleen - Worry, Pensiveness, Obsessiveness
+- The practice:
+	- Become aware of Spleen
+	- Focus intention in Spleen
+	- When you feel Spleen qi:
+		- Allow worry, excessive pensiveness, obsessiveness to manifest
+		- Focus on these emotions and imbalances of Spleen (yi)
+	- When you feel these imbalances:
+		- Move to yellow sphere in middle center
+		- Spiral this energy from outer aspect toward center
+		- Using yi, spiral in yellow sphere
+	- When continually spiraling:
+		- All energies of Kidneys, Heart, Liver, Lungs, Spleen
+		- Fused together into one energy
+- This is the pearl
+- The Synergy Created
+- This nei dan creates synergy:
+	- Transforms individual organ and elemental energy
+	- Into refined life force
+	- Rejuvenates body
+	- This is inner medicine
+- Next stage:
+- Powerful rejuvenation nei dan
+- Powerful self-healing practice
+- STAGE 7: REJUVENATING THE ORGANS AND THE FIVE SHEN
+- The Refined Essence
+- Refined essences of organs:
+	- Now in form of pearl
+	- Purified life force
+	- Can rejuvenate body and mind
+- Final part of nei dan:
+	- Return refined life force to internal organs
+	- Vitalize and rejuvenate them
+- The Creation Cycle
+	- This rejuvenation follows:
+		- Creation cycle of five phases
+		- Also called creation/nourishing five-phase cycle
+		- Guiding energy (pearl) from organ to organ
+		- Until all organs nourished
+- The order:
+	- Kidneys → Liver → Heart → Spleen → Lungs
+	- Repeated multiple times
+	- Until you feel life force in each organ
+- The Practice
+1. Kidneys - Blue-Green:
+	- Smile and bring attention and pearl into Kidneys
+	- Allow pearl to expand to cover all Kidneys
+	- Gently move attention throughout Kidneys
+	- Filling Kidneys with blue-green color
+	- Smile into Kidneys for a few minutes
+	- Until you feel Kidney qi
+	- When ready to continue:
+		- Gather Kidney energy into pearl
+		- Move to iver
+2. Liver - Green:
+	- Move blue-green pearl of Kidneys into Liver
+	- Smile into Liver
+	- Allow blue-green pearl to transform into green-colored pearl
+- 	Allow green pearl to expand to cover entire Liver
+- 	Smile into Liver
+	- Feel vibrant Liver qi
+	- When ready to continue:
+	- Gather Liver energy into pearl
+	- Move to Heart
+3. Heart - Red:
+	- Move green pearl of Liver into Heart
+	- Smile into Heart
+	- Allow green pearl to transform into red-colored pearl
+	- Allow red pearl to expand to cover entire Heart
+	- Smile into Heart
+	- Feel vibrant Heart qi
+	- When ready to continue:
+		- Gather Heart energy into pearl
+		- Move to Spleen
+4. Spleen - Yellow:
+	- Move red pearl of Heart into Spleen
+	- Smile into Spleen
+	- Allow red pearl to transform into yellow-colored pearl
+	- Allow yellow pearl to expand to cover entire Spleen
+	- Smile into Spleen
+	- Feel vibrant Spleen qi
+- When ready to continue:
+	- Gather Spleen energy into pearl
+	- Move to Lungs
+5. Lungs - White:
+	- Move yellow pearl of Spleen into Lungs
+	- Smile into Lungs
+	- Allow yellow pearl to transform into white-colored pearl
+	- Allow white pearl to expand to cover entire Lungs
+	- Smile into Lungs
+	- Feel-  vibrant Lung qi
+	- Completing the Practice
+- Option 1 - End Here:
+	- Move pearl to lower dan tian
+	- Spiral there to collect qi
+	- Store energy in foundation
+- Option 2 - Repeat Cycles:
+	- Repeat cycle 3 or more times
+	- Common to repeat in multiples of 3
+	- Each cycle strengthens organs
+	- Each cycle refines qi further
+- Always finish:
+	- Collecting energy in lower dan tian
+	- Essential closing step
+- Option 3 - Small Heavenly Orbit
+- Powerful way to end:
+	- Circulate qi/pearl in small heavenly orbit
+	- 3, 6, or 9 times
+	- Brings refined and potent life force into Ren and Du channels
+	- Benefits entire body
+- If practiced Eight Extraordinary Channels:
+	- (From author's book Eight Extraordinary Channels—Qi Jing Ba Mai)
+	- Move pearl through all eight extraordinary channels
+	- In pattern presented in that book
+	- Most advanced and comprehensive practice
+
+#### THE TRANSFORMATION PROCESS
+- What This Nei Dan Accomplishes
+- The Fusion of Five Phases nei dan:
+	- Profound inner meditation
+	- Clears life force
+	- Transforms life force
+	- Refines life force
+- Three Treasures Affected
+- We have three treasures:
+	- Physical aspect of life (jing)
+	- Mental aspect of life (qi)
+	- Spiritual aspect of life (shen)
+- From Chinese medical perspective:
+	- Jing (essence)
+	- Qi (energy)
+- 	Shen (spirit)
+- Profound Influence
+- This five shen cultivation has profound influence on:
+	- Imbalances in our life
+	- Imbalances within each three treasures
+	- Temperatures
+	- Tastes
+	- Sensory organs
+	- Emotions
+- This nei dan can:
+	- Transform effects of "the rough"
+	- Transform imprints on our life
+	- Clear conditioning
+	- Reveal the diamond
+#### THE TRANSFORMATION PRINCIPLE
+- Awareness as Key
+- Becoming aware is major aspect:
+	- Awareness allows imbalance to become conscious
+	- Provides opportunity to understand (from experiencing)
+	- Allows transformation of energies
+	- Restoring Original Condition
+- Part of process:
+	- Restore life force to normal, natural condition
+	- Called yuan (original) condition
+	- Instead of removing:
+		- Don't try to remove imbalanced energy from body
+		- Seek to transform life force
+		- This way don't reduce life force
+		- Retain it and use it to rejuvenate body
+- PHILOSOPHICAL UNDERSTANDING
+- The Chinese Perception
+	- Chinese perceived each person as:
+	- Physical energies
+	- Emotional energies
+	- Spiritual energies
+- Each person has level of freedom:
+	- Decide where to place attention
+	- Decide where to place life force
+	- Where We Focus Manifests
+	- "Where we focus our life force manifests the type of life we experience."
+- We have free will to:
+	- Focus attention
+	- Create mindfulness of how to live life
+	- Process of focus is beginning of transformation and nei dan
+- PROFOUND INFLUENCE ON EMOTIONS
+- The Five Shen Nei Dan Effect
+	- This nei dan:
+		- Has profound influence on emotions
+		- In transforming emotions, become more aware of energy
+		- When emotional life absorbs life force:
+			- Less energy for spiritual life
+			- Life force tied up in maintaining emotions
+			- Benefit of Nei Dan
+	- Assists in:
+		- Releasing attachments to emotions
+		- Allowing focus on spiritual nature
+		- Becoming aware of spiritual nature
+- The spirit:
+	- Always with us
+	- Goal: clear rough so spirit naturally appears
+	- Allow natural awareness of spirit
+	- This awareness becomes natural with cultivation
+- New Conditioning
+	- In a way, new conditioning occurs:
+- Living from spirit
+	- This becomes the natural state
+	- Not forced or contrived
+	- Natural expression
+- DURATION AND PRACTICE
+	- How Long Does It Take?
+		- Duration to clear rough differs:
+			- Each person unique
+			- Different amounts of rough
+			- Different types of rough
+			- Different constitutional strengths
+- From author's experience:
+	- "With practice, this Five Shen Nei Dan is a potent way to clear the rough, allowing the natural awareness of spirit, and the Tao within."
+- Building the Practice
+- Recommended approach:
+	- Start with shorter sessions
+	- Gradually increase
+	- Practice regularly (ideally daily)
+	- Be patient with yourself
+	- Allow natural unfolding
+- Stages can be practiced:
+	- Separately (focus on one stage)
+	- Sequentially (move through stages in order)
+	- Eventually as complete integrated practice
+- SUMMARY OF FIVE SHEN NEI DAN
+	- The Complete Practice (7 Stages)
+	- Stage 1 - Smiling Into Five Organs:
+		- Kidneys → Heart → Liver → Lungs → Spleen
+		- Connect qi with organs
+		- Energize and integrate
+	- Stage 2 - Five Phases Elements:
+		- Water (Kidneys) → Fire (Heart) → Wood (Liver) → Metal (Lungs) → Earth (Spleen)
+		- Fusion of element and organ
+		- Stage 3 - Colors of Organs:
+		- Establish yellow center (Spleen)
+		- Blue-green (Kidneys) → Red (Heart) → Green (Liver) → White (Lungs)
+		- Build vibrant organ energies
+	- Stage 4 - Five Phases Senses:
+		- Kidneys-Ears → Heart-Tongue → Liver-Eyes → Lungs-Nose → Spleen-Mouth
+		- Fusion of organ and sensory organ
+		- Stage 5 - Temperatures:
+		- Cold (Kidneys) + Hot (Heart) → fuse in yellow sphere
+		- Warm (Liver) + Cool (Lungs) → fuse in yellow sphere
+		- Mild (Spleen) → add to yellow sphere
+		- Create pearl of balanced temperature
+	- Stage 6 - Emotions:
+		- Fear (Kidneys in blue-green sphere)
+		- Hastiness/arrogance/impatience/hatred (Heart in red sphere)
+		- → Fuse in yellow sphere
+		- Anger/irritability/frustration (Liver in green sphere)
+		- Sadness/depression/grief/loneliness (Lungs in white sphere)
+		- → Fuse in yellow sphere
+		- Worry/pensiveness/obsessiveness (Spleen in yellow sphere)
+		- → Create pearl of transformed emotional energy
+		- Rejuvenating Organs:**
+		- Pearl (original qi) to each organ in creation cycle
+		- Kidneys (blue-green) → Liver (green) → Heart (red) → Spleen (yellow) → Lungs (white)
+		- Repeat 3+ times
+		- Finish in lower dan tian OR small heavenly orbit
